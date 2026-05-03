@@ -31,7 +31,12 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 - Song 2 — [City of Dreamers](#song-2--city-of-dreamers)
 - Song 3 — [Fife And Drum Blues](#song-3--fife-and-drum-blues)
 - Song 4 — [Lost in the Jungle's Heart](#song-4--lost-in-the-jungles-heart)
-  
+- Song 5 — [Chanson de l'âme vagabonde](#song-5--chanson-de-lame-vagabonde)
+- Song 6 — [Grunge Funk](#song-6--grunge-funk)
+- Song 7 — [Whispering Through Trees](#song-7--whispering-through-trees)
+- Song 8 — [Two Worlds Collide](#song-8--two-worlds-collide)
+- Song 9 — [Echoes of the Jungle](#song-9--echoes-of-the-jungle)
+
 ---
 
 ### Song 1 — Why You Love Me
@@ -192,6 +197,224 @@ Every step a brand new part
 Colors dance in swirling dreams
 Nothing's ever what it seems
 
+---
+
+### Song 5 — Chanson de l'âme vagabonde
+
+[Verse]
+Emma returned with stories grand
+Whispered dreams of golden sand
+Echoes of a distant plan
+Where skies and hearts were free
+
+[Verse 2]
+Tales of ancient mystery
+Wove through forests endlessly
+In the twilight history
+Of lands we'll never see
+
+[Chorus]
+But in the halls of power grey
+Doubt and fear would start to play
+Whispers turned the night to day
+Control had found its way
+
+[Verse 3]
+Tales were shackled to the ground
+Voices lost and never found
+Dreamers hushed without a sound
+Walls in shadows crowned
+
+[Bridge]
+Hope had danced on silver streams
+Visions new and hopeful dreams
+But power crushed those gleams
+And silence ruled supreme
+
+[Chorus]
+But in the halls of power grey
+Doubt and fear would start to play
+Whispers turned the night to day
+Control had found its way
+
+---
+
+### Song 6 — Grunge Funk
+
+[Verse]
+The priests cried out
+Stay in the light
+The jungle's filled with cursed night!
+But the call was strong
+The dream was bright
+The people longed to chase the light
+
+[Verse 2]
+In the heart of the city
+Where shadows play
+They tried to push the darkness away
+But the rhythm of the night
+Oh it would sway
+Calling all the souls to dance and stay (oo-yeah!)
+
+[Chorus]
+Stay in the light
+Don't lose your way
+Feel the groove
+Let it guide your day
+Chase the dream
+Let your spirit sway
+In the jungle's beat
+We'll never stray
+
+[Verse 3]
+Midnight whispers
+Secrets in the air
+Mysteries unfold
+If you dare
+Funky vibes take away your care
+Groovin' till the morning
+Everywhere
+
+[Bridge]
+Lift your hands
+Feel the energy rise
+In the beat
+Let your soul baptize
+Find the groove
+See through the disguise
+In the light
+Pure and wise (oo-yeah!)
+
+[Chorus]
+Stay in the light
+Don't lose your way
+Feel the groove
+Let it guide your day
+Chase the dream
+Let your spirit sway
+In the jungle's beat
+We'll never stray
+
+---
+
+### Song 7 — Whispering Through Trees
+
+[Verse]
+Through the trees through the haze
+They found a world untouched by days
+Eyes so bright minds so free
+Moving like the drifting breeze
+
+[Verse 2]
+They spoke with thought they rose with air
+A hidden power everywhere
+Secrets whispered in the night
+Guided by an unknown light
+
+[Chorus]
+Dancing in the forest blue
+No one knows what they might do
+Ancient spirits come alive
+In this place where secrets thrive
+
+[Bridge]
+Leaves are rustling tales unfold
+Mysteries in shades of gold
+Beyond the shadows what lies there
+In the forest take a dare
+
+[Verse 3]
+Moonlight casting silver glow
+Voices soft like falling snow
+Through the trees the winds they speak
+In this world that's wild and free
+
+[Chorus]
+Dancing in the forest blue
+No one knows what they might do
+Ancient spirits come alive
+In this place where secrets thrive
+
+---
+
+### Song 8 — Two Worlds Collide
+
+[Verse]
+Two worlds circle round the bend
+Seeking ways their hearts might mend
+Bridges built on shaky grounds
+In the silence truth resounds
+
+[Verse 2]
+Will they dance or stand apart?
+Hope and doubt both claim the heart
+Twisting roads where paths converge
+Words unspoken on the verge
+
+[Chorus]
+Eye to eye they face the dusk
+Will they leap or will they husk?
+Hands reach out but shadows sway
+Hope and love ain't far away
+
+[Verse 3]
+Winds of change they whisper low
+Steady hearts where rivers flow
+In the quiet fears do tread
+Dreams arise where love is fed
+
+[Bridge]
+Trust me now and take that flight
+We can soar through darkest night
+Hand in hand let shadows breach
+Toward a daydream we can reach
+
+[Verse 4]
+Two worlds meet yet harmony
+Feels like distant memory
+Underneath the skies so vast
+Hope will always be our mast
+
+---
+
+### Song 9 — Echoes of the Jungle
+
+[Verse]
+In the heart where shadows dance
+Found a plant by purest chance
+Magic whispers through each stem
+Promises we’d never hem
+
+[Verse 2]
+Native friends with eyes of gold
+Gave us secrets they had told
+Mystery wrapped in green delight
+Day turned into endless night
+
+[Chorus]
+Breathe it in and feel the haze
+Minds adrift in vibrant maze
+Dreams unfold like violet wings
+Hear the echoes nature sings
+
+[Bridge]
+Power comes with potent snare
+Weighed by choices heavy care
+Nighttime visions blur the line
+Boundaries 'tween the light and blind
+
+[Verse 3]
+Fireside we shared a tale
+Of the leaf that could derail
+Journeys paved with potent spice
+Caught between the virtue vice
+
+[Chorus]
+Breathe it in and feel the haze
+Minds adrift in vibrant maze
+Dreams unfold like violet wings
+Hear the echoes nature sings
 
 
 
