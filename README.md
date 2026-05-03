@@ -1,18 +1,44 @@
 Saga musicale narrative assistée par IA
 (AI-assisted narrative musical saga)
-## Hi there 👋
+# Somewhere — Complete Works
 
-<!--
-**somewhere-complete-works/somewhere-complete-works** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Saga musicale narrative assistée par IA  
+(AI-assisted narrative musical saga)
 
-Here are some ideas to get you started:
+Created by Sébastien Loiret
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## Overview
+
+Somewhere is a long-form musical storytelling project structured in books and seasons.
+
+- Book 1 (Seasons 1–4) — Complete  
+- Book 2 — In progress  
+
+Each song is a chapter in a coherent narrative exploring memory, identity and reality.
+
+---
+
+## Structure
+
+### Book 1
+
+#### Season 1
+- Song 1 — [Title]
+- Song 2 — [Title]
+
+#### Season 2
+- ...
+
+#### Season 3
+- ...
+
+#### Season 4
+- ...
+
+---
+
+## Notes
+
+This repository presents the written corpus of Somewhere for archival and study purposes.
