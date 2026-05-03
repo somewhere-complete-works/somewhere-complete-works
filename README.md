@@ -1,3 +1,5 @@
+Saga musicale narrative assistée par IA
+(AI-assisted narrative musical saga)
 ## Hi there 👋
 
 <!--
