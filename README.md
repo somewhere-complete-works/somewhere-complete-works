@@ -7,6 +7,8 @@ Saga musicale narrative assistée par IA
 
 Created by Sébastien Loiret
 
+Initiated on Suno (AI music platform) on February 25, 2025
+
 ---
 
 ## Overview
