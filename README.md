@@ -465,6 +465,251 @@ Pleasure's depths and the echoed pains
 The flower's spell a double-edged grace
 Left us yearning yet in a sacred place
 
+---
+
+### Song 11 — The Forbidden Bloom
+
+[Verse]
+Wanderers we roamed so far
+Star maps pointed to where we are
+Met the keepers of the sacred tree
+Whispered secrets from the leaves
+
+[Verse 2]
+Beneath the moon their wisdom gleamed
+Eyes that sparkled with a dream
+We traded tales and shared our minds
+Bonded by these ancient vines
+
+[Chorus]
+Ooh forbidden bloom we crave
+It’s a rainbow in the haze
+Taking us to mystic heights
+We dance in technicolor nights
+
+[Verse 3]
+One taste left us in despair
+Caught within this wild snare
+Hearts entwined with crystal light
+Dared to chase the endless night
+
+[Bridge]
+In the shadows echoes grow
+Warnings in the midnight glow
+Addiction binds like tangled roots
+Trapped in shadows of pursuit
+
+[Chorus]
+Ooh forbidden bloom we crave
+It’s a rainbow in the haze
+Taking us to mystic heights
+We dance in technicolor nights
+
+---
+
+### Song 12 — Freedom in the Wild
+
+[Verse]
+Rise up tear down the walls tonight
+Deep in the wild we find our light
+A truth was found in nature's call
+A power lost but standing tall
+
+[Verse 2]
+The city's greed it tried to claim
+The people's hearts their burning flame
+In alleyways and crowded streets
+Resilience falls but never cheats
+
+[Chorus]
+For in the wild our spirit roams
+No concrete cage can hold our bones
+The city's fall our rise anew
+Together strong we break on through
+
+[Bridge]
+In shadows dark our voices loud
+A whispered hope within the crowd
+From forest dense to mountain peak
+We shout the change for which we seek
+
+[Verse 3]
+The city's struggle grit and might
+Can't dim our hearts or blur our sight
+With hands entwined we fight as one
+'Neath moonlit skies until the sun
+
+[Chorus]
+For in the wild our spirit roams
+No concrete cage can hold our bones
+The city's fall our rise anew
+Together strong we break on through
+
+---
+
+### Song 13 — Whispers of the Heart
+
+[Verse]
+Emma walks a winding road
+Two hearts call but one's untold
+Philippe waits so shy so true
+Richard plays with hearts so new
+
+[Chorus]
+Emma wonders where to go
+Left or right no one will know
+Will she choose the tried and true
+Or the charm that's fresh and new
+
+[Verse 2]
+Richard shines with charm that gleams
+Secrets hide behind his schemes
+Philippe stands with quiet grace
+Hoping for a tender place
+
+[Chorus]
+Emma wonders where to go
+Left or right no one will know
+Will she choose the tried and true
+Or the charm that's fresh and new
+
+[Bridge]
+In the wings Carole observes
+Watching hearts with steady nerves
+Will she guide or will she stay
+Silently just walk away
+
+[Verse 3]
+Emma hears her heart's soft plea
+Which one is her destiny
+Risks allure yet comfort calls
+In the game of love's great halls
+
+---
+
+### Song 14 — Celestial Harvest
+
+[Verse]
+From the stars, they came a-shining,
+Seeking fortune in a plant divine.
+Tensions brew, the city's whining,
+Greed and fear in every line.
+
+[Verse 2]
+Riches whispered through the leaves,
+Mysteries that the plant conceives.
+City folk with hearts to thieve,
+In shadows cast by neon eves.
+
+[Chorus]
+Conflict stirs beneath the night,
+Greed and fear locked in a fight.
+Celestial dreams now lost from sight,
+In the city's cold, unyielding light.
+
+[Verse 3]
+Colonists with hopes so high,
+Eyes that gleam like midnight sky.
+Yet below, the urban sigh,
+Fears of wealth that might run dry.
+
+[Bridge]
+Stars above in cosmic ballet,
+Watch the mortals come what may.
+Greed and fear, they ebb and sway,
+In the twilight's gentle gray.
+
+[Verse 4]
+Fortune promises they chase,
+In the plant's mysterious grace.
+Yet within the city's space,
+Lies a tension none erase.
+
+---
+
+### Song 15 — Deciding Heart
+
+[Verse]
+Emma's heart's a battlefield tonight
+City lights keep pulling tight
+Philippe's got her tangled mind
+Richard's love left far behind
+
+[Chorus]
+City love it calls her name
+Philippe's the spark that lights her flame
+Richard's shadow fades away
+In the city she will stay
+
+[Verse 2]
+Wandering through crowded streets
+Siren songs and busy beats
+Philippe whispers sweet and low
+Where her heart decides to go
+
+[Chorus]
+City love it calls her name
+Philippe's the spark that lights her flame
+Richard's shadow fades away
+In the city she will stay
+
+[Bridge]
+Choices made and bridges burned
+Richard's page will not be turned
+Emma's found her rightful place
+In the city she embraced
+
+[Verse 3]
+Tear-streaked nights and morning smiles
+Philippe's love her constant trials
+Richard's voice a distant bell
+Under city lights she dwells
+
+---
+
+### Song 16 — New Horizons
+
+[Verse]
+Carole's eyes light up with a hidden glow
+Images of natives she lets them show
+Richard's close a feeling they both know
+Where secrets lie and tender feelings grow
+
+[Chorus]
+Running circles in the twilight glow
+Holding dreams that make the starlight flow
+In a world where only heartbeats know
+Love's the light that makes the shadows go
+
+[Verse]
+Plans in place the humans bring their might
+Humanoid machines ready to fight
+Whispers in the dark a silent night
+Hope and fear they're tangled tight
+
+[Bridge]
+Philippe stands tall he won’t turn away
+His sacrifice the price they’ll pay
+For freedom's dawn a brand new day
+A hero’s heart won't fade to gray
+
+[Chorus]
+Running circles in the twilight glow
+Holding dreams that make the starlight flow
+In a world where only heartbeats know
+Love's the light that makes the shadows go
+
+[Verse]
+Carole cries her tears like gentle rain
+Richard holds her close to ease the pain
+Underneath the stars they can't explain
+Why loving hearts can break from the strain
+
+---
+
+
+
+
 
 
 
