@@ -38,7 +38,14 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 - Song 7 — [Whispering Through Trees](#song-7--whispering-through-trees)
 - Song 8 — [Two Worlds Collide](#song-8--two-worlds-collide)
 - Song 9 — [Echoes of the Jungle](#song-9--echoes-of-the-jungle)
-
+- Song 10 — [Guardians of the Bloom](#song-10--guardians-of-the-bloom)
+- Song 11 — [The Forbidden Bloom](#song-11--the-forbidden-bloom)
+- Song 12 — [Freedom in the Wild](#song-12--freedom-in-the-wild)
+- Song 13 — [Whispers of the Heart](#song-13--whispers-of-the-heart)
+- Song 14 — [Celestial Harvest](#song-14--celestial-harvest)
+- Song 15 — [Deciding Heart](#song-15--deciding-heart)
+- Song 16 — [New Horizons](#song-16--new-horizons)
+  
 ---
 
 ### Song 1 — Why You Love Me
@@ -418,6 +425,45 @@ Minds adrift in vibrant maze
 Dreams unfold like violet wings
 Hear the echoes nature sings
 
+---
+
+### Song 10 — Guardians of the Bloom
+
+[Verse]
+In the heart of ancient trees we roamed
+Found a flower the locals called home
+Its petals whispered secrets deep and warm
+Intrigue tangled in its sweet storm
+
+[Chorus]
+Guardians of the bloom they stood so firm
+Kept us safe from desire's wildest burn
+Eyes like rivers they'd seen it all
+Knew the kingdom where the reckless fall
+
+[Verse 2]
+Curiosity lit like a sacred fire
+Our hearts thumped heavy desire's choir
+Tasted nectar fashioned from the sky
+Flew on wings till the winds ran dry
+
+[Bridge]
+Shadows whispered in the moonlit glow
+Wonder's bite had a price to show
+Guardians held the line we crossed
+Caution tales of paradise lost
+
+[Chorus]
+Guardians of the bloom they stood so firm
+Kept us safe from desire's wildest burn
+Eyes like rivers they'd seen it all
+Knew the kingdom where the reckless fall
+
+[Verse 3]
+Time would tell the lessons we gained
+Pleasure's depths and the echoed pains
+The flower's spell a double-edged grace
+Left us yearning yet in a sacred place
 
 
 
