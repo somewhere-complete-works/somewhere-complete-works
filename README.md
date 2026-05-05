@@ -942,16 +942,16 @@ In the pulse of the jungle, they chase the truth unseen.
 (Verse 1)
 The journey’s long, the road is rough, Emma’s team has had enough. One last challenge, one last test, A Creativity Contest. 
 
- (Pre-Chorus) 
+(Pre-Chorus) 
 The wise men watch, the stage is set, But danger lurks, don’t forget. Spies are waiting in disguise, Will they fall or will they rise?  
 
 (Chorus) 
  Sing your song, paint your dreams, Let the world see what it means. Hand in hand, they stand so tall, Through the dark, they’ve faced it all. At the Creativity Contest, they shine so bright, Turning shadows into light. 
 
- (Verse 2) 
+(Verse 2) 
 Colors fly and voices soar, Each soul shows what they fight for. A tale of courage, loss, and pain, But through it all, they rise again. 
 
- (Pre-Chorus) 
+(Pre-Chorus) 
 Richard’s past, the truth revealed, Wounds once open, now they heal. Though they’re tired, though they’re worn, They’re stronger now than once before.  
 
 (Chorus)  
