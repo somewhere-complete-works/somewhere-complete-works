@@ -45,6 +45,13 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 - Song 14 — [Celestial Harvest](#song-14--celestial-harvest)
 - Song 15 — [Deciding Heart](#song-15--deciding-heart)
 - Song 16 — [New Horizons](#song-16--new-horizons)
+- Song 17 — [Echoes of War](#song-17--echoes-of-war)
+- Song 18 — [To Leaves and Lovers](#song-18--to-leaves-and-lovers)
+- Song 19 — [The Four Banners](#song-19--the-four-banners)
+- Song 20 — [Shadows and Sacrifice](#song-20--shadows-and-sacrifice)
+- Song 21 — [Ballad of Emma’s Resolve](#song-21--ballad-of-emmas-resolve)
+- Song 22 — [Mysteries in the Green](#song-22--mysteries-in-the-green)
+- Song 23 — [Creativity Contest](#song-23--creativity-contest)
   
 ---
 
@@ -707,8 +714,251 @@ Why loving hearts can break from the strain
 
 ---
 
+### Song 17 — Echoes of War
 
+(Verse 1) 
+Carole called, a whispered name, Richard stepped into the flame. Pictures told of power and grace, In the natives’ eyes, a sacred place.
 
+(Chorus)
+ War drums echo through the sky, Steel and fire marching by. Hearts are torn, the lines are drawn, Who will stand when night is gone?  
+
+(Verse 2) 
+Humans came with metal might, Crushing souls beneath their fight. Secret deals in shadowed halls, But resistance stood through it all. 
+ 
+(Chorus) 
+War drums echo through the sky, Steel and fire marching by. Hearts are torn, the lines are drawn, Who will stand when night is gone?  
+
+(Bridge) 
+Philippe fell, a hero’s cry, Emma swore she’d not stand by. In the flames, she found her way, Fighting on till break of day.
+ 
+(Verse 3)
+ Richard stood on broken ground, Torn between the love he’d found. Emma’s fire, fierce and bright, Won the war, but lost the light.  
+
+(Outro) 
+Ashes fall, the battle’s done, Victory lost beneath the sun. Through the loss, through the pain, Her home still stands, not in vain
+
+---
+
+### Song 18 — To Leaves and Lovers
+
+To Leaves and Lovers
+
+[Verse]
+Richard's eyes saw Carole's face
+Love was like a sweet embrace
+A rare plant now holds his mind
+In its grip forever blind
+
+[Verse 2]
+Emma seeks the roots below
+Origins she needs to know
+City's heartbeat filled with haste
+As the plants begin to taste
+
+[Chorus]
+Can he break the plant's cruel spell
+Before he's lost in living hell
+Trading leaves and trading hearts
+Can he find where true love starts
+
+[Bridge]
+Carole cries while Richard fades
+In the shadows
+Love cascades
+Emma fights the creeping dread
+Holding on by just a thread
+
+[Verse 3]
+Plant trade spreading through the town
+Casting shadows all around
+His escape
+A whispered plea
+Does the past hold the key
+
+[Chorus]
+Can he break the plant's cruel spell
+Before he's lost in living hell
+Trading leaves and trading hearts
+Can he find where true love starts
+
+---
+
+### Song 19 — The Four Banners
+
+Beneath the sky of crimson hue,
+Four banners rise, four paths pursue.
+A land divided, torn and frayed,
+Where peace is lost and war is made.
+
+The Colonizers’ March
+Steel ships descend with roaring might,
+Their banners gleam in silver light.
+With humanoids and hands of steel,
+They carve the land, they forge the deal.
+"Progress!" they cry, with voices grand,
+Yet take what’s never theirs to hand.
+
+The City’s Resistance
+But in the streets where rivers flow,
+Another force begins to grow.
+Emma stands with native kin,
+Their bond is deep, their cause is grim.
+They shield the land, they guard the past,
+Defying fate—defying caste.
+
+The Fanatics' Rise
+A fire burns in fevered eyes,
+A prophet speaks of darkened skies.
+Their faith is law, their truth is blind,
+They call for death to cleanse mankind.
+"The end is near!" their voices wail,
+A path of ruin, cold and pale.
+
+The Jungle’s Silence
+Beyond the walls where vines entwine,
+The jungle whispers, dark, divine.
+No stranger’s foot shall breach their ground,
+No foreign voice, no foreign sound.
+They watch, they wait, the spirits near,
+Their silence hums, both calm and fear.
+
+The Coming Storm
+Four banners rise, four fates entwine,
+Who claims the stars? Who draws the line?
+Through war and whispers, faith and greed,
+The earth still waits—who plants the seed?
+
+---
+
+### Song 20 — Shadows and Sacrifice
+
+(Verse 1)
+Emma digs deep, the truth unfolds,
+A web of lies, a story untold.
+Richard’s past, a secret confined,
+A rare dark plant, control entwined.
+
+(Chorus)
+Shadows rise, the city's torn,
+Power plays and oaths forsworn.
+Who’s a friend? Who’s a foe?
+In the chaos, truth won’t show.
+
+(Verse 2)
+Humanoids roam, the streets ignite,
+Four great forces locked in fight.
+Emma stands, her heart unsure,
+Haunted by the ones before.
+
+(Bridge)
+Philippe’s voice, a ghostly call,
+Will she stand or will she fall?
+Through the fire, through the fear,
+The end is close, but never clear.
+
+(Outro)
+One last choice, one last stand,
+Justice slipping through her hands.
+The city burns, the night is long,
+Emma fights to right the wrong.
+
+---
+
+### Song 21 — Ballad of Emma’s Resolve
+
+The battle raged, the skies burned bright,
+Emma stood in endless fight.
+Torn between her hopes and fears,
+Haunted by Philippe’s fallen years.
+
+(Chorus)
+Oh, the fire, the storm, the fall,
+She held on through it all.
+With the echoes of the past,
+She found her strength at last.
+
+(Verse 2)
+The zealots rose, their faith turned wild,
+The city's heart beat fierce, defiled.
+The colonizers, weak and lost,
+Paid the price, they knew the cost.
+
+(Chorus)
+Oh, the fire, the storm, the fall,
+She held on through it all.
+With the echoes of the past,
+She found her strength at last.
+
+(Bridge)
+Through the ruins, through the pain,
+She built it up, she rose again.
+A home reborn, the scars remain,
+But love still runs within the veins.
+
+(Outro)
+And though the fallen fade with time,
+Their voices still in echoes chime.
+Emma walks, unbowed, unbroken,
+With their names forever spoken.
+
+---
+
+### Song 22 — Mysteries in the Green
+
+(Verse 1)
+In the heart of the wild, where secrets lie,
+Emma strides forward under the endless sky.
+Every rustle, every whisper in the trees,
+Hints of lost origins carried on the breeze.
+
+(Chorus)
+Mysteries in the green, echoes of the past,
+Spies in the shadows, danger coming fast.
+A village whispers of a sickness on the rise,
+Truth awaits in the jungle, hidden from prying eyes.
+
+(Verse 2)
+The wise men murmur tales of ancient days,
+Guiding her journey through nature’s maze.
+Meanwhile, Richard battles demons deep inside,
+A soul divided, teetering on a dangerous ride.
+
+(Bridge)
+Between the leaves and the lingering mist,
+Fate and fear in a perilous twist.
+Together they venture, hearts united as one,
+Facing the dark until the rising sun.
+
+(Outro)
+Through the lush green labyrinth, their destinies intertwine,
+A story of courage, in nature's grand design.
+Mysteries in the green, secrets that still gleam,
+In the pulse of the jungle, they chase the truth unseen.
+
+---
+
+### Song 23 — Creativity Contest
+
+(Verse 1)
+The journey’s long, the road is rough, Emma’s team has had enough. One last challenge, one last test, A Creativity Contest. 
+
+ (Pre-Chorus) 
+The wise men watch, the stage is set, But danger lurks, don’t forget. Spies are waiting in disguise, Will they fall or will they rise?  
+
+(Chorus) 
+ Sing your song, paint your dreams, Let the world see what it means. Hand in hand, they stand so tall, Through the dark, they’ve faced it all. At the Creativity Contest, they shine so bright, Turning shadows into light. 
+
+ (Verse 2) 
+Colors fly and voices soar, Each soul shows what they fight for. A tale of courage, loss, and pain, But through it all, they rise again. 
+
+ (Pre-Chorus) 
+Richard’s past, the truth revealed, Wounds once open, now they heal. Though they’re tired, though they’re worn, They’re stronger now than once before.  
+
+(Chorus)  
+Sing your song, paint your dreams, Let the world see what it means. Hand in hand, they stand so tall, Through the dark, they’ve faced it all. At the Creativity Contest, they shine so bright, Turning shadows into light. 
+
+(Bridge) 
+No more running, no more fear, They have found their place right here. Bound by hope, by love, by trust, Now they rise because they must.  (Outro) Though the road still twists and bends, This is not where their story ends. With a spark and burning soul, They step into the great unknown.  At the Creativity Contest, they found their way, Ready now for a brand-new day. 
 
 
 
