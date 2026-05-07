@@ -1228,7 +1228,7 @@ Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well 
 
 ---
 
-### Song 29 — Secrets in the Shadows (sweet)
+### Song 30 — Secrets in the Shadows (sweet)
 
 (Verse 1) 
 Whispers in the night, something feels wrong, Jo’s eyes shift, been hiding all along. Promised gold for secrets told, By Augustus, hearts grow cold. Confronted by the firelight’s glow, She admits it all, and they let her go. But trust is broken, the lines are drawn, Now they move with caution ‘til the dawn.  
