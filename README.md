@@ -52,6 +52,13 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 - Song 21 — [Ballad of Emma’s Resolve](#song-21--ballad-of-emmas-resolve)
 - Song 22 — [Mysteries in the Green](#song-22--mysteries-in-the-green)
 - Song 23 — [Creativity Contest](#song-23--creativity-contest)
+- Song 24 — [Epidemic Rising](#song-24--epidemic-rising)
+- Song 25 — [The Ballad of Emma's Fight](#song-25--the-ballad-of-emmas-fight)
+- Song 26 — [The Ballad of Geoffroy and Augustus](#song-26--the-ballad-of-geoffroy-and-augustus)
+- Song 27 — [The Song of Richard's Secret](#song-27--the-song-of-richards-secret)
+- Song 28 — [Soulmates and Shadows](#song-28--soulmates-and-shadows)
+- Song 29 — [Secrets in the Shadows (rock)](#song-29--secrets-in-the-shadows-rock)
+- Song 30 — [Secrets in the Shadows (sweet)](#song-30--secrets-in-the-shadows-sweet)
   
 ---
 
@@ -963,6 +970,280 @@ No more running, no more fear, They have found their place right here. Bound by 
 (Outro)
 Though the road still twists and bends, This is not where their story ends. With a spark and burning soul, They step into the great unknown.  At the Creativity Contest, they found their way, Ready now for a brand-new day. 
 
+---
+
+### Song 24 — Epidemic Rising
+
+(Verse 1)
+The air is thick with fear and doubt,
+The sickness spreads, there's no way out.
+Villages fall, the cries arise,
+Underneath the tainted skies.
+
+(Chorus)
+Epidemic, running wild,
+Lost the strong, lost the child.
+No one's safe, no one's free,
+Will we change our destiny?
+
+(Verse 2)
+Richard's gone, he slipped away,
+Others vanished, night took day.
+Laughter lost, a poet’s rhyme,
+Swallowed by the hands of time.
+
+(Bridge)
+Carole knows but keeps it tight,
+A hidden truth, a fading light.
+In their circle, lies betray,
+Jo’s disguise will make them pay.
+
+(Final Chorus)
+Epidemic, creeping fast,
+How much longer can we last?
+Emma stands, the fight goes on,
+Through the dark before the dawn.
+
+(Outro)
+The future waits, the war is near,
+Through the pain, through the fear.
+Epidemic, won’t back down,
+Till the lost ones are found. 
+
+---
+
+### Song 25 — The Ballad of Emma's Fight
+
+Carole saw Richard, the last to know,
+Emma's team set out, truth in tow.
+But in the shadows, secrets grow,
+Jo's a spy, playing friend and foe.
+
+(Pre-Chorus)
+Reports in the dark, to the powers that be,
+Emma’s moves tracked in secrecy.
+But as the clues begin to show,
+There's more beneath than they could know.
+
+(Chorus)
+Humanoids chase in the dead of night,
+Smuggling plants, controlling lives.
+Through chaos, fear, and Jo’s betrayal,
+Emma stands, though hope seems frail.
+Expose the lies, let justice ring,
+But the city burns from what truth brings.
+
+(Verse 2)
+Disappearances, a deeper plot,
+Rare plants trafficked, battles fought.
+Power circles pulling strings,
+While the epidemic spreads its wings.
+
+(Pre-Chorus)
+Through crumbling streets, they face the fight,
+With every step, they lose the light.
+But unity blooms from shared despair,
+Different worlds learning to care.
+
+(Chorus)
+Humanoids chase in the dead of night,
+Smuggling plants, controlling lives.
+Through chaos, fear, and Jo’s betrayal,
+Emma stands, though hope seems frail.
+Expose the lies, let justice ring,
+But the city burns from what truth brings.
+
+(Bridge)
+Betrayed by Jo, but hearts stay strong,
+In the darkest times, they all belong.
+The cure’s a bridge, not just a fight,
+Peace in hearts brings back the light.
+
+(Final Chorus)
+Humanoids fall in the morning glow,
+Truth uncovered, but scars still show.
+Through ashes rise, new hope takes flight,
+Emma’s team brings back the light.
+
+(Chorus)
+Humanoids chase in the dead of night,
+Smuggling plants, controlling lives.
+Through chaos, fear, and Jo’s betrayal,
+Emma stands, though hope seems frail.
+Expose the lies, let justice ring,
+But the city burns from what truth brings.
+
+(Bridge)
+Betrayed by Jo, but hearts stay strong,
+In the darkest times, they all belong.
+The cure’s a bridge, not just a fight,
+Peace in hearts brings back the light.
+
+(Final Chorus)
+Humanoids fall in the morning glow,
+Truth uncovered, but scars still show.
+Through ashes rise, new hope takes flight,
+Emma’s team brings back the light.
+
+---
+
+### Song 26 — The Ballad of Geoffroy and Augustus
+
+(Verse 1)
+Geoffroy's the clown, the talk of the town,
+But now he's gone, can't be found around.
+A master of jokes with a venomous bite,
+He loves to bring you down, but says it's all right.
+
+In a house he's hidden, tied up in chains,
+But plot twist—he's the one who staged his own pain.
+Playing the victim in his twisted game,
+While laughing at friends, calling them names.
+
+(Chorus)
+Oh, Geoffroy, the missing star,
+But you're not as clever as you think you are.
+With Augustus pulling all the strings,
+You'll rise, then fall, like a puppet king.
+
+(Verse 2)
+Now Augustus steps into the light,
+A plant trafficker chasing the heights.
+With AI and tech, he’s brewing a cure,
+For an epidemic he hopes to secure.
+
+But there’s more to this tale of greed and schemes,
+He’s snatching up people, crushing their dreams.
+'Cause Augustus has plans, oh yes, indeed,
+To crown Geoffroy king, then make him bleed.
+
+(Chorus)
+Oh, Geoffroy, the missing star,
+But you're not as clever as you think you are.
+With Augustus pulling all the strings,
+You'll rise, then fall, like a puppet king.
+
+(Bridge)
+When Geoffroy’s reign has served its time,
+Augustus will plot his own climb.
+He’ll topple the fool, take the crown,
+Watch the jester crumble down.
+
+(Outro)
+So beware the laughs and smiling face,
+In this game of power, there's no grace.
+Geoffroy and Augustus, a deadly pair,
+But in the end, only one will wear the heir's chair.
+
+---
+
+### Song 27 — The Song of Richard's Secret
+
+(Verse 1) 
+Jo’s in the shadows, watching Emma move, Whispered to Augustus, got something to prove. "Richard’s no ordinary man," Jo said, "A native leader’s blood runs in his head." With powers to read minds, and float through the air, But the rare plant’s curse is always there. One taste, he’s hooked, his gifts will fade, But there’s a way to rise, through the sages' aid. 
+
+(Chorus) 
+Oh, Richard, where do you hide? The city's calling, but you slip outside. Emma’s chasing truths in the neon light, But you’re lost in the shadows of the night.
+
+(Verse 2) 
+To unlock his strength, he must find the wise, Women of knowledge, with ancient ties. They hold the secrets, the cure, the way, They knew of vaccines before today. Smarter than the men, with wisdom deep, But Richard's missing, lost in the streets. Emma and her crew search high and low, But where he’s gone, they just don’t know. 
+
+(Chorus) 
+Oh, Richard, where do you hide? The city's calling, but you slip outside. Emma’s chasing truths in the neon light, But you’re lost in the shadows of the night.  
+
+(Bridge) 
+The clock is ticking, the danger’s near, Augustus plots while hearts beat fear. Richard’s fate could turn the tide, But will he find the strength inside? 
+
+(Outro) 
+So the city hums with secrets deep, While Emma searches, losing sleep. Richard’s power, a spark unseen, Waiting to rise, or fade in between.
+
+---
+
+### Song 28 — Soulmates and Shadows
+
+(Verse 1)
+Richard's taken, locked away,
+By Auguste's militia, night and day,
+Humanoids and humans, all unite,
+To stop him from rising, take away his light.
+He's got power they can't ignore,
+A threat to their conquest, a battle for more,
+The jungle stretches, the city’s high,
+Behind a wall, beneath the sky.
+
+(Chorus)
+Emma's searching, but the trail’s gone cold,
+Richard’s escaped, his story untold,
+Carole's photos, secrets in disguise,
+The female sages with their ancient ties.
+Emma can't find him, lost in the fray,
+But David’s drawn to her, in a cosmic way,
+Two soulmates lost in a world of dreams,
+As the power struggle tears at the seams.
+
+(Verse 2)
+David’s eyes on Emma's soul,
+A connection deeper, out of control,
+While Richard's on the run, far away,
+The jungle’s dark, but he'll find a way.
+The sages know the path ahead,
+Rituals and rites, the future's thread,
+But Richard’s power's more than they can see,
+The fate of the planet, his destiny.
+
+(Chorus)
+Emma's searching, but the trail’s gone cold,
+Richard’s escaped, his story untold,
+Carole's photos, secrets in disguise,
+The female sages with their ancient ties.
+Emma can't find him, lost in the fray,
+But David’s drawn to her, in a cosmic way,
+Two soulmates lost in a world of dreams,
+As the power struggle tears at the seams.
+
+(Outro)
+The jungle’s waiting, the city’s near,
+Richard's journey, it's crystal clear,
+Emma and David, fate’s embrace,
+In a battle for power, they must face.
+
+---
+
+### Song 29 — Secrets in the Shadows (rock)
+
+(Verse 1) 
+Whispers in the night, something feels wrong, Jo’s eyes shift, been hiding all along. Promised gold for secrets told, By Augustus, hearts grow cold. Confronted by the firelight’s glow, She admits it all, and they let her go. But trust is broken, the lines are drawn, Now they move with caution ‘til the dawn.  
+
+(Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, sparks ignite, Love is rising in the fading light. But with every step, they feel the cost— In this mission, one move and all is lost.  (Verse 2) Richard’s running fast, through the woods and stone, Militia close, but he’s all alone. Knows his strength is yet to rise, With the sages' help, he’ll claim the skies. But the power comes with a heavy price, A rare plant’s grip cuts like ice. They warn of danger, of losing control, But he’s got a fire burning in his soul.  
+
+(Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, sparks ignite, Love is rising in the fading light. Richard’s fate on a fragile line, Will he stand tall or will he resign?  
+
+(Bridge) 
+In the dark, trust can fade, Lines are blurred in the plans they’ve made. Love and power, side by side, Will they stand or will they hide? 
+
+(Final Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, hearts entwined, Fighting fate with hope aligned. Richard’s rising, powers unfold, But the rare plant’s price is yet untold. In the shadows, they find their way— But who will live to see the day?
+
+---
+
+### Song 29 — Secrets in the Shadows (sweet)
+
+(Verse 1) 
+Whispers in the night, something feels wrong, Jo’s eyes shift, been hiding all along. Promised gold for secrets told, By Augustus, hearts grow cold. Confronted by the firelight’s glow, She admits it all, and they let her go. But trust is broken, the lines are drawn, Now they move with caution ‘til the dawn.  
+
+(Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, sparks ignite, Love is rising in the fading light. But with every step, they feel the cost— In this mission, one move and all is lost.  (Verse 2) Richard’s running fast, through the woods and stone, Militia close, but he’s all alone. Knows his strength is yet to rise, With the sages' help, he’ll claim the skies. But the power comes with a heavy price, A rare plant’s grip cuts like ice. They warn of danger, of losing control, But he’s got a fire burning in his soul.  
+
+(Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, sparks ignite, Love is rising in the fading light. Richard’s fate on a fragile line, Will he stand tall or will he resign?  
+
+(Bridge) 
+In the dark, trust can fade, Lines are blurred in the plans they’ve made. Love and power, side by side, Will they stand or will they hide? 
+
+(Final Chorus) 
+Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, hearts entwined, Fighting fate with hope aligned. Richard’s rising, powers unfold, But the rare plant’s price is yet untold. In the shadows, they find their way— But who will live to see the day?
 
 
 
