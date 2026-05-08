@@ -20,22 +20,6 @@ Somewhere is a long-form musical storytelling project structured in books and se
 
 Each song is a chapter in a coherent narrative exploring memory, identity and reality.
 
-#### Season 2
-- ...
-
-#### Season 3
-- ...
-
-#### Season 4
-- ...
-
----
-
-## Notes
-
-This repository presents the written corpus of Somewhere for a
-
-
 ---
 
 ## Structure
