@@ -1,0 +1,36 @@
+### Book 1
+
+#### Season 1
+
+**Songs List**
+- Song 1 — [Why You Love Me](#song-1--why-you-love-me)
+- Song 2 — [City of Dreamers](#song-2--city-of-dreamers)
+- Song 3 — [Fife And Drum Blues](#song-3--fife-and-drum-blues)
+- Song 4 — [Lost in the Jungle's Heart](#song-4--lost-in-the-jungles-heart)
+- Song 5 — [Chanson de l'âme vagabonde](#song-5--chanson-de-lame-vagabonde)
+- Song 6 — [Grunge Funk](#song-6--grunge-funk)
+- Song 7 — [Whispering Through Trees](#song-7--whispering-through-trees)
+- Song 8 — [Two Worlds Collide](#song-8--two-worlds-collide)
+- Song 9 — [Echoes of the Jungle](#song-9--echoes-of-the-jungle)
+- Song 10 — [Guardians of the Bloom](#song-10--guardians-of-the-bloom)
+- Song 11 — [The Forbidden Bloom](#song-11--the-forbidden-bloom)
+- Song 12 — [Freedom in the Wild](#song-12--freedom-in-the-wild)
+- Song 13 — [Whispers of the Heart](#song-13--whispers-of-the-heart)
+- Song 14 — [Celestial Harvest](#song-14--celestial-harvest)
+- Song 15 — [Deciding Heart](#song-15--deciding-heart)
+- Song 16 — [New Horizons](#song-16--new-horizons)
+- Song 17 — [Echoes of War](#song-17--echoes-of-war)
+- Song 18 — [To Leaves and Lovers](#song-18--to-leaves-and-lovers)
+- Song 19 — [The Four Banners](#song-19--the-four-banners)
+- Song 20 — [Shadows and Sacrifice](#song-20--shadows-and-sacrifice)
+- Song 21 — [Ballad of Emma’s Resolve](#song-21--ballad-of-emmas-resolve)
+- Song 22 — [Mysteries in the Green](#song-22--mysteries-in-the-green)
+- Song 23 — [Creativity Contest](#song-23--creativity-contest)
+- Song 24 — [Epidemic Rising](#song-24--epidemic-rising)
+- Song 25 — [The Ballad of Emma's Fight](#song-25--the-ballad-of-emmas-fight)
+- Song 26 — [The Ballad of Geoffroy and Augustus](#song-26--the-ballad-of-geoffroy-and-augustus)
+- Song 27 — [The Song of Richard's Secret](#song-27--the-song-of-richards-secret)
+- Song 28 — [Soulmates and Shadows](#song-28--soulmates-and-shadows)
+- Song 29 — [Secrets in the Shadows (rock)](#song-29--secrets-in-the-shadows-rock)
+- Song 30 — [Secrets in the Shadows (sweet)](#song-30--secrets-in-the-shadows-sweet)
+  
