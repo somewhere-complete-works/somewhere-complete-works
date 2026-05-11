@@ -1234,6 +1234,7 @@ Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well 
 
 ---
 
+<a id="song-31"></a>
 ### Song 31 — Battle for the Future
 
 (Verse 1) 
@@ -1256,6 +1257,7 @@ Now Richard’s standing tall, no more running away, With Emma and her team, the
 
 ---
 
+<a id="song-32"></a>
 ### Song 32 — The Awakening of Richard
 
 (Verse 1)
