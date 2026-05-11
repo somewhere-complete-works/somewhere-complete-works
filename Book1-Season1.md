@@ -1232,5 +1232,453 @@ In the dark, trust can fade, Lines are blurred in the plans they’ve made. Love
 (Final Chorus) 
 Secrets in the shadows, danger in the air, Hearts are heavy, but they’re well aware. Emma and David, hearts entwined, Fighting fate with hope aligned. Richard’s rising, powers unfold, But the rare plant’s price is yet untold. In the shadows, they find their way— But who will live to see the day?
 
+---
+
+### Song 31 — Battle for the Future
+
+(Verse 1) 
+The epidemic's raging, hearts filled with dread, Augustus grows desperate, dark plans in his head. He sends out his militia, hunting through the night, Chasing Richard's power, drawn to the light.  
+
+(Chorus) 
+But Richard’s on the run, with fire in his veins, Fighting for survival through the fear and pain. Emma’s by his side, with her team in tow, Facing down Augustus, letting truth flow. They’ll fight for the future, for the world they know, In the heart of the city, let the battle glow.  
+
+(Verse 2) 
+Richard can’t rely on his powers for long, The weight of the world makes him question if he's strong. Emma finds him hiding, but danger's closing in, Augustus and his army, chasing them again.  
+
+(Chorus) 
+But Richard’s on the run, with fire in his veins, Fighting for survival through the fear and pain. Emma’s by his side, with her team in tow, Facing down Augustus, letting truth flow. They’ll fight for the future, for the world they know, In the heart of the city, let the battle glow.  
+
+(Bridge) 
+The city lights are shining, but the shadows creep, Secrets in the alleys, promises to keep. They'll stand and reveal the evil that's been done, The war for the planet has only just begun.  
+
+(Final Chorus) 
+Now Richard’s standing tall, no more running away, With Emma and her team, they’re ready for the fray. Augustus feels the heat, his empire starts to fall, The truth is their weapon, the strongest of them all. They’ll fight for the future, for the world they know, In the heart of the city, let the battle glow.
+
+---
+
+### Song 32 — The Awakening of Richard
+
+(Verse 1)
+In the jungle near a waterfall,
+Lived wise women, knowing all.
+They told Richard of his native line,
+A chief's descendant, with powers divine.
+
+Telepathy and flight could be his to claim,
+But not for glory, not for fame.
+Only for the good of all,
+Would his powers heed the call.
+
+(Chorus)
+Through the songs of the wise, he found his way,
+Facing truths in the light of day.
+On a shaman's journey, his spirit soared,
+Till he stood alone, his heart restored.
+With a strong Self and purpose clear,
+Richard's powers would soon appear.
+
+(Verse 2)
+The ritual began with questions deep,
+About his soul, the secrets he’d keep.
+If his heart was true, his will aligned,
+The next step waited for his mind.
+
+He drank the brew, their voices rose,
+Ancestral songs, the jungle knows.
+On a boat through visions wild,
+Till he met the crowd, then stood a child.
+
+(Chorus)
+Through the songs of the wise, he found his way,
+Facing truths in the light of day.
+On a shaman's journey, his spirit soared,
+Till he stood alone, his heart restored.
+With a strong Self and purpose clear,
+Richard's powers would soon appear.
+
+(Bridge)
+But one last trial he had to face,
+A rare plant’s grip he must erase.
+A month with sages, free his mind,
+To leave addiction far behind.
+
+(Final Chorus)
+Through the songs of the wise, he found his way,
+Facing truths in the light of day.
+Now his powers rise, his heart is pure,
+For the good of all, his strength is sure.
+With the jungle's wisdom in his soul,
+Richard’s ready to play his role.
+
+---
+
+### Song 33 — Whispers of Power
+
+(Verse 1)
+Emma and her team, they found Richard at last,
+She introduced them all, the memories held fast.
+David was there, her heart's true desire,
+Yet Richard let go of his old burning fire.
+
+(Chorus)
+Love and wisdom, a battle of pride,
+Secrets unfolding, no place to hide.
+A power awakened, a mission so grand,
+To stop all the darkness that threatens the land.
+
+(Verse 2)
+Richard had learned through midwives so wise,
+Telepathy, levitation—he saw through the lies.
+Jo was a spy, but they let her go,
+With Richard now watching, she'd reap what she'd sown.
+
+(Bridge)
+Auguste was scheming with greed in his eyes,
+Using a humorist to spread all his lies.
+A poison, not plague, ran deep in the stream,
+The planet in peril—a sinister scheme.
+
+(Chorus)
+Love and wisdom, a battle of pride,
+Secrets unfolding, no place to hide.
+A power awakened, a mission so grand,
+To stop all the darkness that threatens the land.
+
+(Outro)
+With courage and wit, they stand side by side,
+Fighting the shadows, hearts open wide.
+The truth will emerge, the villain will fall,
+For justice and hope will conquer them all.
+
+---
+
+### Song 34 — The Price of Control
+
+(Verse 1) 
+Jo once walked in shadow’s game, A spy who played a deadly name. They set her free but watched her close, With Richard’s mind, they’d see the ghost.  
+
+(Pre-Chorus) 
+Augustus rose with ruthless pride, Spun his web so deep and wide. But as the people cried in pain, A darker truth would soon remain.  
+
+(Chorus) 
+He poisoned the rivers, he darkened the land, Holding their fate in the palm of his hand. Control the water, control the soul, Augustus thirsted for ultimate control.  
+
+(Verse 2) 
+Emma’s fire, Richard’s sight, Chased the truth into the night. Through the sickness, through the lies, They found the source, they heard the cries. 
+
+(Bridge)
+Geoffroy stood, no longer chained, The people rose and called his name. Augustus fell, his time was through, His greed would be his own undoing too.  
+
+(Chorus – repeat) 
+He poisoned the rivers, he darkened the land, Holding their fate in the palm of his hand. Control the water, control the soul, Augustus thirsted for ultimate control.  
+
+(Outro) 
+Now the rivers run free, the dawn shines bright, No more fear in the morning light. Emma, Richard, David too, Built a world both strong and new.
+
+---
+
+### Song 35 — Emma and the Lost City
+
+(Verse 1)
+ On her first expedition into the unknown, Emma walked where no light had shone. Through the jungle, deep and wide, A hidden cave, a mystery inside.  
+
+(Chorus) 
+Ancient voices call her name, Symbols carved in stone remain. A city lost, a tale untold, Secrets buried deep in gold. 
+
+ (Verse 2) 
+Four hundred years had passed away, Since settlers came and chose to stay. They built their walls, they tamed the land, With fire, stone, and guiding hands.  
+
+(Bridge) The clans arose, their power spread, Trading goods, their fortunes bred. With fields to farm and mines so deep, Their legacy would never sleep.  
+
+(Chorus - Repeat) Ancient voices call her name, Symbols carved in stone remain. A city lost, a tale untold, Secrets buried deep in gold.  
+
+(Outro) 
+Emma stands where time stood still, Echoes whisper through the hills. With every step, she’ll learn and see, The past’s lost song in history. 
+
+---
+
+### Song 36 — Beyond the Wall
+
+[Verse 1]
+Beyond the wall, where the jungle breathes,
+The air is thick with whispered dreams.
+A people lost in a silent haze,
+Bound by roots in a golden maze.
+
+[Pre-Chorus]
+But the wise ones see through the mist,
+Eyes unchained, they can resist.
+Emma wonders, how it began—
+Were they always under this command?
+
+[Chorus]
+Who took their sky? Who stole their minds?
+Why do they fear what’s left behind?
+Locked inside their hollow halls,
+Never hearing nature’s call.
+Beyond the wall…
+
+[Verse 2]
+Once they soared on winds unseen,
+Heard each thought like lucid streams.
+But the circles drew their lines,
+Fed them roots and stole their time.
+
+[Pre-Chorus]
+Yet the wise ones see through the veil,
+Silent echoes tell the tale.
+Emma wonders, who decreed
+That they must never dare be free?
+
+[Chorus]
+Who took their sky? Who stole their minds?
+Why do they fear what’s left behind?
+Locked inside their hollow halls,
+Never hearing nature’s call.
+Beyond the wall…
+
+[Bridge] 
+What lies beyond, a world untamed,
+A jungle vast, yet unafraid.
+Not the beasts nor shadow’s call,
+But the truth they fear most of all...
+
+[Outro] 
+Beyond the wall… the echoes cry,
+A secret lost… but not to time.
+
+---
+
+### Song 37 — The Smile of a Schemer
+
+(Verse 1) 
+In the city and the jungle, dark shadows grew, A new wave of settlers, with power so true. Auguste had a plan, take the water, take control, But Emma and Richard played the hero’s role.  
+
+(Chorus) 
+Oh, Geoffrey laughs, oh, Geoffrey schemes, Playing both sides, chasing his dreams. A victim? A villain? Oh, who can say? He walks free while Auguste fades away.  
+
+(Verse 2) 
+With a twist so bold, a tale so grand, Geoffrey staged his fate with a masterful hand. A kidnapping fake, a deception so tight, No matter who won, he’d come out alright. 
+
+(Chorus) 
+Oh, Geoffrey laughs, oh, Geoffrey schemes, Playing both sides, chasing his dreams. A victim? A villain? Oh, who can say? He walks free while Auguste fades away. 
+
+(Bridge) 
+Auguste now locked in a prison so cold, For poisoning waters, for being too bold. But in the shadows, with riches in sight, Geoffrey’s still plotting, preparing his flight. 
+
+(Outro) 
+So beware of the trickster, the smile he wears, Behind every joke, a secret he bears. Will Auguste return? Will Geoffrey succeed? Only time will tell where the next tale will lead...
+
+---
+
+### Song 38 — The Secrets Below
+
+(Intro)
+Emma walks where no one's been, Through the cave, beneath the wind. A city lost, a tale untold, Why were they hidden? Why so cold?  
+
+(Pre-Chorus) 
+A mystery grows like vines in the dark, A plant that steals their powers stark. Was it fate or was it planned? By settlers’ touch or nature’s hand?  
+
+(Chorus) Shadows rise, the echoes call, Truths forgotten, empires fall. Geoffrey spins the people's mind, Auguste fights, his fate confined. Power shifts like shifting sand, Who will rule this ancient land?  
+
+(Verse 2) 
+A colony strong, a force unknown, Strangers come to claim the throne. Geoffrey schemes, his words take flight, Auguste dreams of stolen might. 
+
+ (Bridge) 
+Chains can break, the game’s not done, A hidden bond beneath the sun. Were they foes or were they kin? The fight for power grows within. 
+
+(Chorus – Repeat)
+Shadows rise, the echoes call, Truths forgotten, empires fall. Geoffrey spins the people's mind, Auguste fights, his fate confined. Power shifts like shifting sand, Who will rule this ancient land? 
+
+ (Outro)
+ Emma stands where secrets lie, Watching history twist and cry. Will they rise or will they fall? The cave still whispers through it all.
+
+(Verse 1)
+Geoffrey’s got a wicked scheme, chasing after selfish dreams,
+Helping Auguste break away, though the city's in dismay.
+Power and riches, all they crave, even if it’s roads unpaved,
+Water’s control was Auguste’s game, but Emma and Richard knew his name.
+
+(Chorus)
+Oh, the city's safe for now, but shadows still remain,
+Greedy hearts will find a way to play the game again.
+No chains can hold ambition down, no walls can stop their run,
+The battle’s won, but in the dark, the war is far from done.
+
+(Verse 2)
+Locked away but never lost, Auguste had a secret cost,
+With Eno’s help, the message flew, to Geoffrey’s hands, the plan it grew.
+A perfect ruse, a twisted play, a twin who never lived a day,
+A humanoid made to deceive, while Auguste walked out with ease.
+
+(Bridge)
+Dressed in lies, he slipped right through,
+Where his loyal few already knew.
+A daring trick, a great escape,
+Now he’s gone without a trace.
+
+(Outro)
+Emma watches, Richard waits,
+Knowing fate will test their gates.
+The city's safe, but not for long,
+For greed and power still march on
+
+---
+
+### Song 39 — The Great Escape
+
+(Verse 1)
+Geoffrey’s got a wicked scheme, chasing after selfish dreams,
+Helping Auguste break away, though the city's in dismay.
+Power and riches, all they crave, even if it’s roads unpaved,
+Water’s control was Auguste’s game, but Emma and Richard knew his name.
+
+(Chorus)
+Oh, the city's safe for now, but shadows still remain,
+Greedy hearts will find a way to play the game again.
+No chains can hold ambition down, no walls can stop their run,
+The battle’s won, but in the dark, the war is far from done.
+
+(Verse 2)
+Locked away but never lost, Auguste had a secret cost,
+With Eno’s help, the message flew, to Geoffrey’s hands, the plan it grew.
+A perfect ruse, a twisted play, a twin who never lived a day,
+A humanoid made to deceive, while Auguste walked out with ease.
+
+(Bridge)
+Dressed in lies, he slipped right through,
+Where his loyal few already knew.
+A daring trick, a great escape,
+Now he’s gone without a trace.
+
+(Outro)
+Emma watches, Richard waits,
+Knowing fate will test their gates.
+The city's safe, but not for long,
+For greed and power still march on
+
+---
+
+### Song 40 — Echoes of the Past (instrumental)
+
+---
+
+### Song 41 — Echoes of the Past 
+
+(Verse 1)
+Legends passed from tongue to ear, fading in the night,
+Wars and storms erased the past, took away their right.
+Emma seeks the missing threads, but must tread with care,
+For knowledge holds a heavy weight, and truth is always rare.
+
+(Bridge)
+What’s been lost, what’s been erased,
+Who decides which tales we chase?
+Will she find the missing key,
+Or will she set the past all free?
+
+(Chorus )
+Oh, the secrets of the land, voices lost like grains of sand,
+Power fights to keep control, but history slips through the hands.
+Will the echoes of the past break the silence at long last?
+Or will shadows claim the truth, and let the questions fade so fast?
+
+(Outro)
+Emma walks the line so thin, between the dark and light,
+Seeking answers, chasing ghosts, hoping she just might...
+
+(Verse 2)
+Emma's searching for the past, stories buried deep,
+Whispers of the natives’ world, lost in time’s cold sleep.
+Circles of power hide away, walls so high and tall,
+Fearing truths or dangers that could make their kingdom fall.
+
+(Chorus)
+Oh, the secrets of the land, voices lost like grains of sand,
+Power fights to keep control, but history slips through the hands.
+Will the echoes of the past break the silence at long last?
+Or will shadows claim the truth, and let the questions fade so fast?
+
+---
+
+### Song 42 — The Ballad of Auguste & Geoffrey
+
+(Verse 1)
+Auguste broke free, slipped through the gate,
+Now he’s running, hiding, before it’s too late.
+A humanoid trick left in his place,
+But the city's rulers are on the chase.
+
+(Chorus)
+Run, Auguste, run—disappear or fight,
+In the shadows or take to flight.
+Deception’s fragile, truth burns bright,
+Before the city swallows the night.
+
+(Verse 2)
+Geoffrey plays his double game,
+Smiling wide while fanning the flame.
+Speaks for Emma, speaks for all,
+But behind the mask, he's bound to fall.
+
+(Pre-Chorus)
+On the walls, the sketches glow,
+Mocking power, stealing the show.
+Clans in anger, whispers grow,
+Love or hate him—friend or foe?
+
+(Chorus)
+Run, Auguste, run—disappear or fight,
+In the shadows or take to flight.
+Deception’s fragile, truth burns bright,
+Before the city swallows the night.
+
+(Bridge)
+Richard feels the twisted game,
+Telepathy whispers Geoffrey’s name.
+Carole’s hiding secrets deep,
+A stranger’s shadow starts to creep.
+
+(Verse 3)
+Emma and David, lost in time,
+Digging through the past for the city’s crime.
+Natives’ voices, buried low,
+Missing pages—they need to know.
+
+(Outro)
+The city breathes, the story turns,
+Secrets smolder, fires burn.
+Who will rise and who will fall?
+When truth and lies destroy them all... 
+
+---
+
+### Song 43 — Truth Unbound
+
+[Verse 1] 
+"David, do you see? The lies are so deep, The history’s buried, they’ve made us all sleep."  "I know, Emma, but we’ll find the way, The truth can’t hide, it will come to stay."  "Carole, I’ve found you, I knew you’d be here, A rival to Geoffrey, but you’re still so near."   "I’ve hidden a stranger, a plan for the night, We need your help, to set things right."  "I’ll help, no violence, but we’ll make our stand, Together we’ll take back the land." 
+
+ [Chorus] 
+"Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light." 
+
+ [Verse 2]  
+"I can’t trust a soul, not a friend in sight, I’ll gather my evidence, and I’ll fight."  (Tensions rise within the city) "The city’s on edge, it’s breaking apart, Geoffrey’s media stunt is just the start."  "We need to act fast, or the war will explode, Before we all fall, before it’s too bold."  
+
+[Chorus] 
+"Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light."  
+
+[Bridge]
+ "Please, wise ones, tell me what you know, What’s been hidden, where did the truth go?"  "The scrolls you seek, they’ve been lost in time, But now the truth must again climb."   "This is it, Emma, the truth we’ve sought, The city’s past, now it’s caught." 
+
+[Verse 3]
+"Geoffrey, the lies have caught up with you, The city knows now, and it’s through."  "The scrolls we hold, the truth we bear, Your reign ends now, there’s nothing to spare." 
+
+[Chorus]  
+"Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light." 
+
+[Outro]
+"The lies are gone, the truth stands tall, The city’s free, we’ve answered the call."   "Together, we’ve done what’s right, The truth has won, and brought the light."  "Truth unbound, and now we’re free, The future’s ours, for you and me"
+
+
 
 
