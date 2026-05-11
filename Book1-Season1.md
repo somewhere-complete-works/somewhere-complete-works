@@ -1314,6 +1314,7 @@ Richard’s ready to play his role.
 
 ---
 
+<a id="song-33"></a>
 ### Song 33 — Whispers of Power
 
 (Verse 1)
@@ -1354,6 +1355,7 @@ For justice and hope will conquer them all.
 
 ---
 
+<a id="song-34"></a>
 ### Song 34 — The Price of Control
 
 (Verse 1) 
@@ -1379,6 +1381,7 @@ Now the rivers run free, the dawn shines bright, No more fear in the morning lig
 
 ---
 
+<a id="song-35"></a>
 ### Song 35 — Emma and the Lost City
 
 (Verse 1)
@@ -1399,6 +1402,7 @@ Emma stands where time stood still, Echoes whisper through the hills. With every
 
 ---
 
+<a id="song-36"></a>
 ### Song 36 — Beyond the Wall
 
 [Verse 1]
@@ -1451,6 +1455,7 @@ A secret lost… but not to time.
 
 ---
 
+<a id="song-37"></a>
 ### Song 37 — The Smile of a Schemer
 
 (Verse 1) 
@@ -1473,6 +1478,7 @@ So beware of the trickster, the smile he wears, Behind every joke, a secret he b
 
 ---
 
+<a id="song-38"></a>
 ### Song 38 — The Secrets Below
 
 (Intro)
@@ -1527,6 +1533,7 @@ For greed and power still march on
 
 ---
 
+<a id="song-39"></a>
 ### Song 39 — The Great Escape
 
 (Verse 1)
@@ -1561,10 +1568,12 @@ For greed and power still march on
 
 ---
 
+<a id="song-40"></a>
 ### Song 40 — Echoes of the Past (instrumental)
 
 ---
 
+<a id="song-41"></a>
 ### Song 41 — Echoes of the Past 
 
 (Verse 1)
@@ -1603,6 +1612,7 @@ Or will shadows claim the truth, and let the questions fade so fast?
 
 ---
 
+<a id="song-42"></a>
 ### Song 42 — The Ballad of Auguste & Geoffrey
 
 (Verse 1)
@@ -1655,6 +1665,7 @@ When truth and lies destroy them all...
 
 ---
 
+<a id="song-43"></a>
 ### Song 43 — Truth Unbound
 
 [Verse 1] 
