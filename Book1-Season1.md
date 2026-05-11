@@ -1672,16 +1672,16 @@ When truth and lies destroy them all...
 "David, do you see? The lies are so deep, The history’s buried, they’ve made us all sleep."  "I know, Emma, but we’ll find the way, The truth can’t hide, it will come to stay."  "Carole, I’ve found you, I knew you’d be here, A rival to Geoffrey, but you’re still so near."   "I’ve hidden a stranger, a plan for the night, We need your help, to set things right."  "I’ll help, no violence, but we’ll make our stand, Together we’ll take back the land." 
 
  [Chorus] 
-"Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light." 
+ "Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light." 
 
  [Verse 2]  
-"I can’t trust a soul, not a friend in sight, I’ll gather my evidence, and I’ll fight."  (Tensions rise within the city) "The city’s on edge, it’s breaking apart, Geoffrey’s media stunt is just the start."  "We need to act fast, or the war will explode, Before we all fall, before it’s too bold."  
+ "I can’t trust a soul, not a friend in sight, I’ll gather my evidence, and I’ll fight."  (Tensions rise within the city) "The city’s on edge, it’s breaking apart, Geoffrey’s media stunt is just the start."  "We need to  act fast, or the war will explode, Before we all fall, before it’s too bold."  
 
 [Chorus] 
 "Truth unbound, the walls will fall, The city’s power will no longer call. Emma and David, together we fight, To set the city’s wrongs into the light."  
 
 [Bridge]
- "Please, wise ones, tell me what you know, What’s been hidden, where did the truth go?"  "The scrolls you seek, they’ve been lost in time, But now the truth must again climb."   "This is it, Emma, the truth we’ve sought, The city’s past, now it’s caught." 
+"Please, wise ones, tell me what you know, What’s been hidden, where did the truth go?"  "The scrolls you seek, they’ve been lost in time, But now the truth must again climb."   "This is it, Emma, the truth we’ve sought, The city’s past, now it’s caught." 
 
 [Verse 3]
 "Geoffrey, the lies have caught up with you, The city knows now, and it’s through."  "The scrolls we hold, the truth we bear, Your reign ends now, there’s nothing to spare." 
