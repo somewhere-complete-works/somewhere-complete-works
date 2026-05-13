@@ -173,8 +173,7 @@ The city cries, the people fall, The night is black, there’s no one tall. The 
 (Bridge - The Choice of Richard) 
 A son of two, of bloodlines torn, A heart divided since he was born. The warriors called, the sages warned, Would he bring light, or feed the storm?  
 
-(Verse 3 - Geoffrey’s Rise) 
-And in the chaos, one man laughed, His kingdom built on broken backs. Geoffrey’s will, a twisted scheme, To rule through fire, to kill the dream.  
+(Verse 3 - Geoffrey’s Rise) And in the chaos, one man laughed, His kingdom built on broken backs. Geoffrey’s will, a twisted scheme, To rule through fire, to kill the dream.  
 
 (Final Chorus - The Fate Unwritten)  
 The city cries, the war begins, The drums of fate beat deep within. The choice is near, the lines are drawn, But will they rise before the dawn?   
