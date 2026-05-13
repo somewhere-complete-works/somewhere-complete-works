@@ -319,8 +319,7 @@ The Contest of Wonders
 (Verse 1 – The Contest Begins! )
 The banners waved, the voices rose, A contest of minds where legends composed. A stage of fire, a clash of fate, Where visions were born to recreate.  Carole stepped forth with eyes so bright, Holding the past in circuits of light. "I bring them back, the lost, the gone," "Imbricated data, their souls live on!"  Humanoids walked with echoes inside, Memories woven, the past revived. Ghosts reborn in metal and code, A second chance for lives forebode. 
 
-(Chorus – A World Reimagined! )  
-Ohhh, past and future collide tonight! Data breathes, their souls ignite! Walls may rise, but dreams break free, A world reborn in mystery!   
+(Chorus – A World Reimagined! ) Ohhh, past and future collide tonight! Data breathes, their souls ignite! Walls may rise, but dreams break free, A world reborn in mystery!   
 
 (Verse 2 – Auguste’s Revelation… ) 
 Then from the dark, a voice so low, A stranger spoke, the whispers flowed. Auguste stood, his mask held tight, And shattered the world with words of might.  "Beyond these walls, beyond your sight," "A city stands in hidden light!" "No gates, no kings, no chains to bind," "A land where power’s redefined!"  Gasps arose, the people swayed, Had Auguste built what none had made? A mirrored world, a perfect twin, A place where life could start again?  
