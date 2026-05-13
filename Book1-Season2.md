@@ -166,8 +166,7 @@ Beyond the gates where the forests breathe, The elders gathered, hearts in grief
 (Pre-Chorus - A Divided Path)
 Some cried war, some whispered peace, Should they burn or seek release? One name spoken through the haze, Richard stood between the waves.  
 
-(Chorus - A Kingdom Torn Apart)  
-The city cries, the people fall, The night is black, there’s no one tall. The past is calling, the stars grow dim, And in the dark, they call for him.   
+(Chorus - A Kingdom Torn Apart) The city cries, the people fall, The night is black, there’s no one tall. The past is calling, the stars grow dim, And in the dark, they call for him.   
 
 (Bridge - The Choice of Richard) 
 A son of two, of bloodlines torn, A heart divided since he was born. The warriors called, the sages warned, Would he bring light, or feed the storm?  
