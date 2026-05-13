@@ -334,7 +334,7 @@ Then from the dark, a voice so low, A stranger spoke, the whispers flowed. Augus
 (Bridge – The War Ignites! ) 
 As minds collided, swords were drawn, The ruling clan would not be pawned. With Irimon’s force, they struck so fast, A brutal storm, a deadly blast!  Richard stood with bloodstained hands, Fighting hard to save his lands. But outnumbered, outgunned, outcried, Hope was lost as brothers died… 
 
-(Final Chorus – Creation or Destruction? )  
+(Final Chorus – Creation or Destruction? )
 Ohhh, past and future collide tonight! Metal hands, a second life! Walls may rise, but dreams break free, A world reborn in mystery!  Ohhh, war and wisdom, side by side! A kingdom falls, a fate denied! The fire burns, the echoes cry, But who will live, and who will die?   
 
 (Outro – The Aftermath… )
