@@ -173,8 +173,7 @@ A son of two, of bloodlines torn, A heart divided since he was born. The warrior
 
 (Verse 3 - Geoffrey’s Rise) And in the chaos, one man laughed, His kingdom built on broken backs. Geoffrey’s will, a twisted scheme, To rule through fire, to kill the dream.  
 
-(Final Chorus - The Fate Unwritten)  
-The city cries, the war begins, The drums of fate beat deep within. The choice is near, the lines are drawn, But will they rise before the dawn?   
+(Final Chorus - The Fate Unwritten) The city cries, the war begins, The drums of fate beat deep within. The choice is near, the lines are drawn, But will they rise before the dawn?   
 
 (Outro - Whispered Fate) 
 The king of chaos takes his throne… But nothing’s certain, nothing’s known.
