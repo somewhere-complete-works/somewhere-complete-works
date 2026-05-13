@@ -158,8 +158,7 @@ The city’s in turmoil, the future unclear, Hope and despair are both drawing n
 (Pre-Chorus - The City in Fear) 
 Shouts of terror, blades in hand, Shadows rising, blood on the sand. No law remains, no mercy calls, Just fear that lingers in the walls. 
 
-(Chorus - The City Burns)  
-The city cries, the people fall, The night is black, there’s no one tall. The streets are drowning, the bells don’t ring, And in the dark, there stands a king.   
+(Chorus - The City Burns) The city cries, the people fall, The night is black, there’s no one tall. The streets are drowning, the bells don’t ring, And in the dark, there stands a king.   
 
 (Verse 2 - The Natives' Struggle) 
 Beyond the gates where the forests breathe, The elders gathered, hearts in grief. For years enslaved, their minds made weak, By roots of poison, grown so deep.  
