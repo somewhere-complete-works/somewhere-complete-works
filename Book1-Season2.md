@@ -14,3 +14,7 @@
 - Song 9 — [The Ballad of Carole and the Jungle’s Fate](#song-9--the-ballad-of-carole-and-the-jungles-fate)
 - Song 10 — [The Contest of Wonders](#song-10--the-contest-of-wonders)
 - Song 11 — [The Ballad of the Walled City](#song-11--the-ballad-of-the-walled-city)
+  
+---
+
+### Song 1 — Geoffrey's Shadow
