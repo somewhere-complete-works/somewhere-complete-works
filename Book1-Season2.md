@@ -496,7 +496,7 @@ Say my name right, or you’ll face the test.
 (Verse 1) 
 The bells will ring, the vows will rise, Emma stands with stars in her eyes. David waits, his heart beats wild, A promise whispered, fate beguiled.  But far away from silk and lace, Carole worked in time and space. With Jane beside her, pages spread, She called the lost back from the dead.   A face from dust, a voice untold, A shadow walking, hands grown cold… Through steel and wire, through ghost and name, A long-lost soul was born again. 
 
-(Chorus)  
+(Chorus)
 Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
 
 (Verse 2) 
