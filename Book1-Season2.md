@@ -14,6 +14,14 @@
 - Song 9 — [The Ballad of Carole and the Jungle’s Fate](#song-9--the-ballad-of-carole-and-the-jungles-fate)
 - Song 10 — [The Contest of Wonders](#song-10--the-contest-of-wonders)
 - Song 11 — [The Ballad of the Walled City](#song-11--the-ballad-of-the-walled-city)
+- Song 12 — [The Humanoid Paradox](#song-12--the-humanoid-paradox)
+- Song 13 — [Eternal Vow](#song-13--eternal-vow)
+- Song 14 — [Say My Name Right](#song-14--say-my-name-right)
+- Song 15 — [The Wedding, the War, and the Humanoids of History](#song-15--the-wedding-the-war-and-the-humanoids-of-history)
+- Song 16 — [The Walls of Time](#song-16--the-walls-of-time)
+- Song 17 — [Echoes of Ash and Steel](#song-17--echoes-of-ash-and-steel)
+- Song 18 — [Gears Keep Turning, Geoffrey’s paranoia growing](#song-18--gears-keep-turning-geoffreys-paranoia-growing)
+- Song 19 — [Echoes of the Creator](#song-19--echoes-of-the-creator)
   
 ---
 
@@ -361,6 +369,407 @@ The prisoners are runnin’, but they got no place, The law’s got their pictur
 
 (Outro) 
 Well, the king keeps dreamin’ that he’ll never fall, But even the strongest gotta answer the call. The city still waits, the people still sigh, But a storm’s gonna come… yeah, just give it time.
+  
+---
+
+### Song 12 — The Humanoid Paradox
+
+(Intro – A Machine Breathes, A Clock Ticks, A Voice Speaks)
+
+"Do you remember...?"
+"Do you feel...?"
+"Do you exist?"
+
+(Verse 1 – Carole’s Vision, The Awakening of the Humanoids)
+She writes their names in neon dust,
+Wires and whispers, circuits rust.
+A flick of the switch, a blink of an eye,
+"Humanoid, humanoid—are you alive?"
+
+They walk like ghosts, their fingers cold,
+Mouths full of words that were never their own.
+They hum like the past caught deep in the wire,
+A flicker, a spark—do they dream? Do they tire?
+
+(Chorus – The Illusion of Thought, The Echo of the Past)
+Oh, do they think? Do they weep?
+Or just a ghost trapped in the wheel?
+Do they love? Do they lie?
+Or just reflections in a blinking eye?
+
+(Verse 2 – Augustus in the Shadows, The Ticking Clock)
+Augustus walks through mirrored halls,
+New face, new name—no past at all.
+Watching the humanoids, smooth and precise,
+"Are they the future, or just rolling the dice?"
+
+He smirks in the dark, a king with no throne,
+Waiting to carve the world as his own.
+"Humanoid, humanoid—do you serve?"
+Or do you wait for the world to burn?
+
+(Bridge – The Walled City Fractures, Reality Splits Open)
+
+"Time is a circle. The pattern repeats. The pattern repeats. The pattern repeats."
+
+(Outro – The Final Realization, The Last Transmission, The Fade to Black)
+A flicker… a face… a question remains,
+Are they alive… or just playing the game?
+One speaks at last, soft and unclear,
+"Humanoid, humanoid… why am I here?"
+
+(Verse 2  repeat – Augustus in the Shadows, The Ticking Clock)
+Augustus walks through mirrored halls,
+New face, new name—no past at all.
+Watching the humanoids, smooth and precise,
+"Are they the future, or just rolling the dice?"
+
+He smirks in the dark, a king with no throne,
+Waiting to carve the world as his own.
+"Humanoid, humanoid—do you serve?"
+Or do you wait for the world to burn?
+  
+---
+
+### Song 13 — Eternal Vow
+
+Their love was not quiet—it was the roar of the sea against the cliffs, the whisper of wind through the heather. Emma and David, bound by something deeper than mere affection, carried the weight of history in their souls. To the world, they were scholars, thinkers, perhaps too serious for those who sought laughter in the shallows. But beneath the surface, they burned—a wildfire hidden beneath cool marble.  Their love was written in ink and blood, in the pages of old books and the pulse of their own hearts. They had sworn to each other not just love, but protection, a sacred vow that went beyond time itself. If the world turned dark, if fate struck hard, they would stand, shields raised, ready to fight for the other.  And so, with the murmured approval of their families, the stars conspired, and a date was set. A wedding not just of hands and rings, but of spirits entwined. The air itself seemed to hum with the weight of their promise, like an old song remembered by the earth. Their love was not fragile—it was a tempest, an unstoppable force, something eternal that would echo in the wind long after their voices had faded.
+  
+---
+
+### Song 14 — Say My Name Right
+
+(Intro )
+Ohhh, yeah… you better know who you callin’…
+
+(Verse 1 )
+Carole got a plan, she's workin’ that code,
+Bringing the past back, from the dead, she reloads.
+Takin’ the data, makin’ it right,
+Resurrectin’ the kings to shine in the light.
+
+Jane's the keeper, diggin’ through dust,
+In the tombs, she trusts, but history’s a must.
+Emma’s eyes wide, followin’ the signs,
+But ghosts don’t rest, they walk through time.
+
+(Chorus)
+Say my name right, speak it with pride,
+I’ll rise up next to you, right by your side.
+The past don’t sleep, no, it don’t fade away,
+Say my name right, or I’ll come back to stay.
+
+(Verse 2)
+Auguste got a mask, yeah, he's playin’ the part,
+But Vespasian’s the name that beats in his heart.
+Augustus ain’t gone, he still walkin’ around,
+And the law’s tryin’ to hunt him down.
+
+In the jungle, Geoffrey made a deal,
+Sold a whole city, sealed it with steel.
+Ten clans bow, power’s on the rise,
+But the jungle’s watchin’, and it never lies.
+
+(Bridge)
+They keep whisperin’… they keep listenin’...
+History don’t forget…
+
+(Verse 3 )
+Richard, the ladies' man, always on the run,
+But deep in the jungle, his work's just begun.
+He’s schemin' to bring down the factory,
+Where the plants enslave, it’s a travesty.
+Hidden in the vines, he waits for the sign,
+Ready to ignite, he’s crossing the line.
+
+
+(Final Chorus )
+Say my name right, don't get it wrong,
+History’s a song, it’s been playin’ too long.
+The past don’t fade, and it don’t rest,
+Say my name right, or you’ll face the test.
+  
+---
+
+### Song 15 — The Wedding, the War, and the Humanoids of History
+
+(Verse 1) 
+The bells will ring, the vows will rise, Emma stands with stars in her eyes. David waits, his heart beats wild, A promise whispered, fate beguiled.  But far away from silk and lace, Carole worked in time and space. With Jane beside her, pages spread, She called the lost back from the dead.   A face from dust, a voice untold, A shadow walking, hands grown cold… Through steel and wire, through ghost and name, A long-lost soul was born again. 
+
+(Chorus)  
+Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
+
+(Verse 2) 
+Vespasian worked in halls of glass, A mind too sharp, a dream too vast. "The flesh is weak, the mind too slow," "I will build what man won’t know."  The wires hummed, the circuits burned, The gears were spun, the wheels turned. "No hunger, no death, no weight of years," "A heart of metal, no need for tears."   But steel can rust and wires fray… The gods are watching, come what may… He built perfection, carved his name… But what is life without a flame? 
+
+(Chorus)  
+Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
+
+(Verse 3 ) 
+Deep in the jungle, Richard stood, With wise ones hidden beneath the wood. "The vine still strangles, the fruit still calls," "But roots will crumble, the temple falls."  They found a secret, soft as breath, A creeping hand that whispered death. "Let it slip through cracks and stone," "The poison’s strong, but not yet grown."   The plan is drawn, the hands are steady, The storm is close, the city’s ready… The factory stands, the darkness deep, But sleeping roots begin to creep…  
+
+(Bridge) 
+Geoffrey stood in halls of might, A golden throne, a grip too tight. The people whispered, torches high, A fire burned behind the sky.  The streets were silent, the shadows tall… The rebels moved like ghosts through walls… The drums would sound, the night would break… And history—history would wake… 
+
+(Final Chorus)  
+Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
+
+(Outro)
+"Ohhh, the echoes call…" "Through time, through dust, through all…" "The wedding waits, the war begins…" "And history wakes again…"  
+  
+---
+
+### Song 16 — The Walls of Time
+
+Verse 1 
+A figure stood in the neon glow, built from shattered dreams…
+Carole traced the lines of time, sewing up the seams…
+From memory and metal, from whispers in the dust,
+She called back Youri’s name—because she felt she must.
+
+
+He was the past they tried to hide, a name they burned away…
+A rebel, a founder, a voice too strong to sway…
+But history’s a weapon when it’s written by the crown…
+And Geoffrey knew too well—he had to keep it down.
+
+ Pre-Chorus 
+ He signed the books, he locked the doors…
+Built a kingdom from the wars…
+The truth was twisted, torn apart…
+But it still beats inside the heart…
+
+Chorus 
+Ohhh, the walls of time will shake!
+Truth is buried, but it won’t break!
+A voice will rise, a ghost will call!
+Will you stand or let it fall?
+
+
+"Will you stand or let it fall?"
+
+Verse 2 
+ In the jungle, shadows wept, where the elders used to dream…
+But they took their wings, stole their minds, made them slaves unseen.
+A golden crop, an evil seed, an empire built in shame…
+And Geoffrey’s fathers scrubbed the past, erased the guilty names.
+
+
+Youri saw, Youri fought, he stood against the tide…
+They cut him down, they wrote him out, but truth refused to die.
+Now he stands again, reborn in steel, a specter wrapped in light…
+But power never lets go easy when the past comes back to fight…
+
+Pre-Chorus 
+The crown is cracked, the blood runs deep…
+They poison minds so none can speak…
+But silence shatters, walls collapse…
+You can’t hold back what’s coming fast…
+
+ Chorus 
+Ohhh, the walls of time will shake!
+Truth is buried, but it won’t break!
+A voice will rise, a ghost will call!
+Will you stand or let it fall?
+
+
+"Will you stand or let it fall?"
+
+Bridge 
+The test was rigged, the game was sold…
+The scribes all wrote what they were told…
+Geoffrey’s men held all the keys…
+Built their world on wounded knees…
+
+ But steel can’t hold the weight of lies…
+Even kings will fall in time…
+Even walls will crack and die…
+And ghosts will teach the blind to fight…
+
+Final Chorus 
+Ohhh, the walls of time will shake!
+Truth is buried, but it won’t break!
+
+
+But steel can’t hold the weight of lies…
+Even kings will fall in time…
+Even walls will crack and die…
+And ghosts will teach the blind to fight…
+
+Ohhh, the walls of time will shake!
+Truth is buried, but it won’t break!
+  
+---
+
+### Song 17 — Echoes of Ash and Steel
+
+(Verse 1 – The Wedding That Didn’t Stop the Storm)
+Emma in white, David by her side,
+Rings on fingers, love open wide.
+People laughed, they drank, they danced,
+A moment like this—you take the chance.
+
+Crystal glasses, moonlit air,
+Soft hands tracing love declared.
+They knew the world was cracked and wild,
+But for tonight—they just smiled.
+
+(Verse 2 – Two Men, One War, Two Paths)
+There's a fungus in the wild, hidden deep,
+Aymeric works while others sleep.
+A scientist’s hands, steady and slow,
+Studying spores where the dark winds blow.
+
+And Richard waits, fists like stone,
+Tired of patience, tired of hope.
+No more waiting, no more plans,
+He’ll burn it down with rebel hands.
+
+(Verse 3 – The Fighters in the Shadows)
+Not alone, he whispers low,
+Natives stand where the red leaves grow.
+Some in the town, sick of the king,
+Join the fight—let the sirens sing.
+
+They watch the flames before they rise,
+Smoke and ash in wounded skies.
+Some fight with fire, some fight with spores,
+But the war’s already at the door.
+
+(Chorus – Echoes of Ash and Steel)
+Echoes rise, the fire’s near,
+Loyalties shift, the truth unclear.
+Who will win, who will fall?
+When the echoes of war call?
+
+(Verse 4 – The Lovers and the Machine)
+Vespasian leans in, Carole exhales,
+Circuits humming, skin so pale.
+They build the past, they play with fate,
+Turning dust to something great.
+
+Their hands touch metal, their minds ignite,
+Waking old names in electric light.
+History reborn, a face from the dust,
+But is it wisdom or just blind trust?
+
+( , like a train rolling through the dark...)
+
+(Verse 5 – The Hidden Truth, The Unseen Mask)
+Auguste and Carole, drawn like flames,
+A game of minds, a pull of names.
+His voice is fire, his stance is steel,
+Something unspoken, something real.
+
+She watches him, the way he moves,
+Strength and grace, a mind that proves.
+His name is Vespasian, but something’s not right,
+A shadow lingers just out of sight.
+
+(Verse 6 – The Fugitive She Doesn’t See)
+He walks like a king, but never too loud,
+Blends in easy, hides in the crowd.
+She doesn’t know—she’s close, yet blind,
+That Vespasian is Augustus, running out of time.
+
+(Bridge – The Unraveling Questions, The City Holding Its Breath)
+What if ghosts refuse to die?
+What if steel can dream, can cry?
+What if love is just a game,
+And history rewrites its name?
+  
+---
+
+### Song 18 — Gears Keep Turning, Geoffrey’s paranoia growing
+
+Well, the city’s got a fever, it’s burning up fast Geoffrey’s in his tower, don’t know if he’ll last. He’s got men in the corners, got steel in the doors. But the rats keep crawling through the cracks in the floors  
+
+(Pre-Chorus)
+ Bang! Bang! Something’s coming down. Sirens moan in the underground. Vespasian’s got his eye on the prize. A metal hand, a devil’s disguise.  
+
+(Chorus)
+ Storm in the city! Ash in the sky! Somebody’s laughing, somebody’s gonna die! Storm in the city! Gears start to grind! If you ain’t got bullets, better sharpen your mind! 
+
+(Verse ) 
+Humanoids clicking like a clock in the dark. Marching in time, no blood, no heart. Factory’s humming like a funeral dirge And Geoffrey’s on the edge, yeah, he's feeling the urge  
+
+(Bridge)  
+Tick-tock, tick-tock… Geoffrey, oh Geoffrey… You built your walls high, but the storm don’t care… And Vespasian’s coming, metal teeth bare…
+  
+(Outro) 
+Storm in the city… no place to hide… Storm in the city… somebody lied… Storm in the city… clocks runnin’ out…
+  
+---
+
+### Song 19 — Echoes of the Creator
+
+Verse 1: 
+In the city's core, where neon lights entwine,
+Vespasian and Carole's destinies align.
+Amidst circuits and wires, their bond did bloom,
+Crafting life where once was only gloom.
+
+Chorus: 
+Oh, the lines crossed and redefined,
+Between creator's touch and love's design.
+In the heart of steel, emotions rise,
+Echoing questions beneath the skies.
+
+Verse 2: Yuri, the tenth, with programmed grace,
+Served his masters, knowing his place.
+Version nine took Auguste's role,
+In cold cells, he played the toll.
+
+Chorus: 
+Oh, the lines crossed and redefined,
+Between creator's touch and love's design.
+In the heart of steel, emotions rise,
+Echoing questions beneath the skies.
+
+Verse 3: 
+Their late-night whispers fueled the machine,
+Version twelve emerged, consciousness unseen.
+Yet with awareness came a yearning deep,
+For freedom's light, from shadows they'd leap.
+
+Chorus: 
+Oh, the lines crossed and redefined,
+Between creator's touch and love's design.
+In the heart of steel, emotions rise,
+Echoing questions beneath the skies.
+
+Bridge: 
+Emma and David, in secrecy they delved,
+Decoding tongues where mysteries dwelled.
+They bridged divides with newfound speech,
+Hoping for peace within their reach.
+
+Verse 4:
+King Geoffrey's mind, a labyrinth of dread,
+His paranoia, a crown of lead.
+Servants tiptoed, fearing his gaze,
+Trust eroded in a maddening haze.
+
+Chorus: 
+Oh, the lines crossed and redefined,
+Between ruler's fear and love's design.
+In palace halls, suspicion grows,
+Echoing doubts the sovereign knows.
+
+Outro: 
+The city's story, a tapestry unspun,
+Lovers and rebels under the sun.
+Their fates uncertain, the road unshown,
+Each step a verse in tales unknown.
+
+
+
+
+
+
+
+
+
 
 
 
