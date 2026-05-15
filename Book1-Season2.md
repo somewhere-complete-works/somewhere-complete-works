@@ -502,7 +502,7 @@ Ohhh, the past walks forward, the future waits… A world reborn behind iron gat
 (Verse 2) 
 Vespasian worked in halls of glass, A mind too sharp, a dream too vast. "The flesh is weak, the mind too slow," "I will build what man won’t know."  The wires hummed, the circuits burned, The gears were spun, the wheels turned. "No hunger, no death, no weight of years," "A heart of metal, no need for tears."   But steel can rust and wires fray… The gods are watching, come what may… He built perfection, carved his name… But what is life without a flame? 
 
-(Chorus)  
+(Chorus)
 Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
 
 (Verse 3 ) 
@@ -511,7 +511,7 @@ Deep in the jungle, Richard stood, With wise ones hidden beneath the wood. "The 
 (Bridge) 
 Geoffrey stood in halls of might, A golden throne, a grip too tight. The people whispered, torches high, A fire burned behind the sky.  The streets were silent, the shadows tall… The rebels moved like ghosts through walls… The drums would sound, the night would break… And history—history would wake… 
 
-(Final Chorus)  
+(Final Chorus)
 Ohhh, the past walks forward, the future waits… A world reborn behind iron gates… The wedding bells are yet to sing… But the war is whispering…  
 
 (Outro)
