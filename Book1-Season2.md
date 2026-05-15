@@ -693,7 +693,7 @@ Well, the city’s got a fever, it’s burning up fast Geoffrey’s in his tower
 (Verse ) 
 Humanoids clicking like a clock in the dark. Marching in time, no blood, no heart. Factory’s humming like a funeral dirge And Geoffrey’s on the edge, yeah, he's feeling the urge  
 
-(Bridge)  
+(Bridge)
 Tick-tock, tick-tock… Geoffrey, oh Geoffrey… You built your walls high, but the storm don’t care… And Vespasian’s coming, metal teeth bare…
   
 (Outro) 
