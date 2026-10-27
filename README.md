@@ -25,6 +25,8 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 ## Structure
 
 ### Book 1
+
+#### Season 1
 - [Season 1](Book1-Season1.md)
 
 
