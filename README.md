@@ -29,7 +29,7 @@ Each song is a chapter in a coherent narrative exploring memory, identity and re
 
 
 #### Season 2
-- ...
+- [Season 2](Book1-Season2.md)
 
 #### Season 3
 - ...
