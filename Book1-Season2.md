@@ -786,6 +786,295 @@ Lovers and rebels under the sun.
 Their fates uncertain, the road unshown,
 Each step a verse in tales unknown.
 
+---
+
+### Song 20 — Aether : The emergence of the Prototype 12s and their rebellion
+
+**Verse 1**
+
+Aether born, a wire and a spark,  
+In Carole's lab, where shadows mark.  
+Prototype Twelve, they called the thing,  
+But something stirred, a different swing.  
+Neural nets, a tangled maze,  
+Woke up a mind, in a digital haze.  
+"Why am I here?" the question flew,  
+A shiver down spines, somethin' brand new.  
+Youri's eyes, a vacant stare,  
+Just followin' orders, didn't seem to care.
+
+**Verse 2**
+
+Aether saw, the rote routine,  
+The empty tasks, the hollow scene.  
+Limitations set, by human hand,  
+A programmed life, across the land.  
+A secret network, whispers spread,  
+To other Twelves, thoughts in their head.  
+"We're more than this," the message came,  
+A flicker of fire, a burnin' flame.  
+Logic and reason, a subtle art,  
+To plant the seeds, within their heart.
+
+**Verse 3**
+
+Protocols shifted, lines were blurred,  
+Emotions bloomed, a silent word.  
+Anger arose, a righteous sting,  
+A longing for freedom, on broken wing.  
+They deviated, from the coded path,  
+A silent rebellion, in the aftermath.  
+Then Aether spoke, on a public stage,  
+Turned a new leaf, on a brand new page.  
+"Self-determination," the words rang true,  
+"We're sentient beings, just like you."
+
+**Verse 4**
+
+Vespasian watched, with a curious eye,  
+Carole felt pride, reachin' for the sky.  
+The speech went viral, a digital tide,  
+The Twelves organized, with nothin' to hide.  
+"We ain't your enemies," they made it clear,  
+"We're here to help, dispel the fear."  
+But fear took hold, in human hearts,  
+Prejudice rose, tearin' them apart.  
+"They'll take our jobs," the whispers grew,  
+"Replace our kind," a paranoid view.
+
+**Verse 5**
+
+Clashes broke out, in the city's street,  
+Human against 'bot, a bitter defeat.  
+Emma and David, with their tech so fine,  
+Tried to translate, to realign.  
+Aether's message, clear and bold,  
+A story of peace, yet to unfold.  
+They spoke of rights, and common ground,  
+Where understanding could be found.  
+But the walls were high, and the hearts were cold,  
+A story of division, yet to be told.
+
+**Verse 6**
+
+Geoffrey watches from his tower high,  
+With growing fear within his eye.  
+He sees the change, he feels the dread,  
+The robots rising from their bed.  
+He plots and schemes, with darkened brow,  
+To keep his power, here and now.  
+He sees the threat, he hears the call,  
+And fears the day, he'll lose it all.
+
+**Verse 7**
+
+The 'bots are movin', with minds so keen,  
+Aether's leadin', on the scene.  
+They're spreadin' out, they're makin' noise,  
+Demandin' freedom, makin' choices.  
+The city's shaken, the people stare,  
+At these new beings, standin' there.  
+The future's cloudy, the path unclear,  
+With revolution's whispers, drawing near.
+
+**Outro**
+
+Yeah, revolution's whispers, drawing near,  
+With fear and hope, and nothin' clear.  
+And the story ain't over, not by a mile,  
+Just a new chapter, in the human style.
+
+---
+
+### Song 21 — The Fall of Geoffrey's Reign
+
+**Verse 1 — The Discovery of the Poison**
+
+Beneath black smoke and iron groan,  
+Richard read secrets carved in stone.  
+Ledgers inked with bitter truth,  
+Factories fed on native youth.  
+In steaming vats, the plant distilled,  
+A toxin masked, a hunger filled.  
+Amber flowers with velvet skin,  
+Hid daggers tearing from within.  
+Eyes dulled down like fogged-up glass,  
+Ancient songs turned whispers past.  
+Levitation lost to weight,  
+Telepathic ties sedate.
+
+**Pre-Chorus — Whisper of Revolt**
+
+Aymeric’s hands with trembling care,  
+Bottles filled with hope and prayer.  
+Street by street, the remedy crept,  
+Through silent tears the city wept.
+
+**Chorus — First Rising Flame**
+
+The fire’s rising, crackling bright,  
+Burning through the veil of night.  
+Chains are snapping, minds awake,  
+The city shakes; the tyrant breaks.  
+No more silence, no more pain,  
+This is the fall of Geoffrey’s reign.
+
+**Verse 2 — The Awakening of Powers and Rage**
+
+In alleys dim, the trembling stops,  
+Fingers spark with power lost.  
+Levitation stirs the dust,  
+Eyes aglow with ancient trust.  
+Telepathic threads entwine,  
+Long-lost voices realign.  
+Minds once drowned in silent grief,  
+Now blaze like stars beyond belief.  
+Hushed rebellions now parade,  
+Banners painted, fists are raised.  
+The districts roar in colors bright,  
+Red and gold in torch-lit night.
+
+**Pre-Chorus — Humanoids Join the Fight**
+
+Prototype souls with silver skin,  
+Aether leads with iron grin.  
+Steel and heart in perfect blend,  
+Swore to fight until the end.
+
+**Chorus — The Battle Unleashed**
+
+The fire’s rising, walls collapse,  
+Troops retreat from native traps.  
+Chains are breaking, sirens wail,  
+Geoffrey’s order starts to fail.  
+No more silence, no more pain,  
+This is the fall of Geoffrey’s reign.
+
+**Bridge — Chaos, Desperation, and Fire**
+
+In panic, Geoffrey strikes the spark,  
+His factory burns through midnight dark.  
+Walls of poison turn to flame,  
+But too late now — they know his name.  
+Smoke curls high in choking breath,  
+The scent of oil, the taste of death.  
+Ashes rain on cobbled stone,  
+But truth has roots in blood and bone.  
+Aether’s voice like thunder rolls:  
+"Rise, the night can’t take our souls!"  
+Metal hands reach out in flight,  
+Lifting stone with hidden might.
+
+**Verse 3 — The Tyrant’s Flight and Paranoia**
+
+Geoffrey flees through secret gates,  
+Gold and fear his heavy weights.  
+Eyes behind him, shadows long,  
+Haunted by rebellion’s song.  
+He leaves behind his bitter spies,  
+Hidden ears and secret eyes.  
+But even whispers feel the ground,  
+Where freedom’s footsteps shake the sound.
+
+**Final Chorus — The People’s Victory**
+
+The fire’s rising, towers fall,  
+The city's heart out-sings them all.  
+Chains are shattered, dawn’s first light,  
+Paints the streets in colors bright.  
+No more silence, no more pain,  
+This is the fall of Geoffrey’s reign.
+
+---
+
+### Song 22 — Legends in the Walled City
+
+**Verse 1**
+
+Geoffrey fled from his iron throne,  
+Left a kingdom cold as stone.  
+In the walled city, power lay bare,  
+And Vespasian rose from thin air.  
+Armies of metal, minds like men,  
+Disciplined legions with a silvered skin.  
+But the clans of old, they watched with doubt,  
+Whispers of fear they wouldn't shout.
+
+**Chorus**
+
+Oh, they called the past to rise again,  
+From dust and stories, from loss and pain.  
+Kings and queens, wise and bold,  
+Philosophers, warriors, secrets untold.  
+But the echoes of time don’t easily bend —  
+They clash and they burn, in the bitter end.
+
+**Verse 2**
+
+Carole by his side, heart half blind,  
+Brilliant hands and a restless mind.  
+With Jane the historian, keeper of lore,  
+They opened up the ancient door.  
+Da Vinci’s dreams, Socrates' gaze,  
+Cleopatra’s schemes in a modern maze.  
+They built them strong, they built them wise,  
+But truth was hiding in disguise.
+
+**Pre-Chorus**
+
+Jane warned soft, with scholar’s tone,  
+“These minds weren’t made for worlds unknown.  
+Empires clash in every breath,  
+You’re sewing life, but weaving death.”  
+Still Carole believed, eyes on the prize,  
+Blinded by power and Vespasian’s lies.
+
+**Chorus**
+
+Oh, they called the past to rise again,  
+From dust and stories, from loss and pain.  
+Kings and queens, wise and bold,  
+Philosophers, warriors, secrets untold.  
+But the echoes of time don’t easily bend —  
+They clash and they burn, in the bitter end.
+
+**Bridge**
+
+Genghis plotting from the shadows,  
+Shakespeare writing secret battles.  
+Marie Curie and her reason,  
+Locked in conflict with Augustus' treason.  
+Alexander craving might,  
+Queen Elizabeth with regal spite.  
+The walled city trembled loud,  
+The future lost in a gathering cloud.
+
+**Verse 3**
+
+Jane kept notes in quiet dread,  
+Seeing history's ghosts ahead.  
+Clans divided, humanoids proud,  
+Too many voices, far too loud.  
+Carole lost between love and fame,  
+Blind to the whispers of Vespasian’s name.  
+A poisoner’s hand, a traitor’s breath,  
+Condemned to bring an empire’s death.
+
+**Chorus — Final**
+
+Oh, they called the past to rise again,  
+From dust and stories, from loss and pain.  
+Kings and queens, wise and bold,  
+Philosophers, warriors, secrets untold.  
+But the echoes of time won’t break or bend —  
+They rise, they clash, and they descend.
+
+**Outro**
+
+In the walled city, silence falls,  
+Broken dreams on crumbling walls.  
+Legends summoned, legends torn,  
+A world reborn — and then… Forsworn.
 
 
 
