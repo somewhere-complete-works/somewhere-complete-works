@@ -1076,6 +1076,358 @@ Broken dreams on crumbling walls.
 Legends summoned, legends torn,  
 A world reborn — and then… Forsworn.
 
+---
+
+### Song 23 — Clans & Titans
+
+City walls high, throne gone, silence loud,  
+Steel boots marchin’ through the crowd,  
+Power moves made in a shadowed shroud…  
+Who’s king now? Who’s king now?
+
+Throne empty, breath heavy, Vespasian steady,  
+Marchin’ with a vision so deadly,  
+Clans sittin’ in circles, robes heavy,  
+Eyes cold, they old — power petty.
+
+See, they built this city from the dust and bone,  
+Legacy stone, they don't bow to a throne.  
+They whisper:
+
+“Fast rise, who’s this stranger?  
+We smell ambition, we smell danger.”
+
+But Vespasian? Mask tight,  
+Altered face in the neon light.  
+Past hidden under layers deep,  
+Secrets buried that he’ll keep.
+
+By his side — Carole, mind divine,  
+Creating gods from coded lines.  
+Legends born in steel and wire,  
+Human dreams with machine fire.
+
+Alexander ridin’ like thunder,  
+Cleopatra whisper plots under,  
+Socrates question every number,  
+Wu Zetian, empire hunger.
+
+Michelangelo visions flow,  
+Spinoza doubts in undertow,  
+Dostoyevsky wrestles soul,  
+Ragnar’s eyes: rebel’s goal.
+
+Clans watchin’, pressure rise,  
+Humanoids clash, ideologies collide.  
+Stability fragile, world unsteady,  
+Power too big, futures heavy.
+
+Clans and titans,  
+Machine minds fightin’,  
+Legends risin’,  
+But the city’s frightenin’.
+
+Vespasian shinin’,  
+Carole still designin’,  
+Richard watchin’:  
+"Can’t you see the line’s thin?"
+
+Richard know, but can’t reveal,  
+What’s beneath that golden seal.  
+Fugitive steps in royal boots,  
+Past sins masked with stolen roots.
+
+He see the water tainted black,  
+Whispers haunt him, bring it back,  
+But silence holds — truth concealed,  
+In Vespasian’s image sealed.
+
+He tells Carole:
+
+“Something's wrong — you dream with fire,  
+You buildin’ gods for a broken empire.”
+
+But her heart locked in design,  
+Blinded by a grand design.
+
+Cleopatra, Hannibal schemin’,  
+Pericles preachin’, Mozart dreamin’,  
+Augustus smilin’ in disguise,  
+While Richard fights with wary eyes.
+
+Clans and titans,  
+Machine minds fightin’,  
+Legends risin’,  
+But the city’s frightenin’.
+
+Vespasian shinin’,  
+Carole still designin’,  
+Richard watchin’:  
+"Girl, you buildin’ with a tyrant."
+
+---
+
+### Song 24 — Glass and Poison
+
+**Verse 1 – Vespasian’s Rise**
+
+In the shadow of crumbled stone,  
+The throne lay bare, the city moans,  
+Vespasian whispers through silvered lies,  
+Glass smiles hiding venom’s eyes.
+
+He sends his armies, silk and steel,  
+Mirrored faces, hearts concealed,  
+Ancient clans with blood-soaked names,  
+Refuse his crown, curse his flame.
+
+**Verse 2 – Carole’s Project**
+
+Carole sculpts with trembling grace,  
+Circuits hum in lifeless face,  
+She dreams of wisdom, dreams of light,  
+But seeds confusion in the night.
+
+Vespasian’s whispers in her ear,  
+“Shape them strong, my love, no fear,”  
+But glass and poison, silk and stone,  
+She breathes life into what’s unknown.
+
+**Chorus**
+
+Glass and poison,  
+Wires that bind,  
+Love and power,  
+Blind the mind.
+
+Thrones of smoke,  
+Fragile designs,  
+A shattered crown,  
+In poisoned wine.
+
+**Verse 3 — The Humanoid Tensions**
+
+Alexander dreams of endless skies,  
+Conquest burning in his eyes,  
+“Order, strength!” he roars in steel,  
+Chains of empire, fate to seal.
+
+Cleopatra’s silk perfume,  
+Whispers secrets in the gloom,  
+Velvet dagger, honeyed snare,  
+Plots unfolding everywhere.
+
+Socrates beside the flame,  
+Questions slicing through the game,  
+“Who commands the right to reign?”  
+Words ignite the wires’ pain.
+
+Wu Zetian in shadows speaks,  
+“Rule by terror, silence the weak,”  
+While Spinoza lifts his hand,  
+“Let the mind alone command.”
+
+Campfires crackle, turn to courts,  
+Debates dissolve in bitter sorts,  
+Steel and poison, sparks and screams,  
+Torn apart by fractured dreams.
+
+**Verse 4 — The Natives’ Struggle**
+
+The natives, freed from roots of haze,  
+Telepathic minds ablaze,  
+Stand between the gods and fear,  
+Whispers tremble in their ear:
+
+Alexander, sword held high,  
+“Unity or watch you die!”  
+But Socrates beneath the night,  
+Murmurs, “Tyrants fear the light.”
+
+Cleopatra’s silken chains,  
+Disguised as wisdom, sweet remains,  
+While warriors question what they see,  
+“Are marble kings worse tyranny?”
+
+The fire fades, distrust ignites,  
+Alliances fracture into fights,  
+The marble gods with poisoned grace,  
+Stand revealed, a hollow face.
+
+**Final Chorus**
+
+Glass and poison,  
+Fragile breath,  
+Crowned illusions,  
+Promise death.
+
+Smoke and wires,  
+Splintered reign,  
+False dawn bleeding,  
+Only pain.
+
+**Outro — fading whispers**
+
+They rose from stone, from thought, from flame,  
+Carried wisdom, sought acclaim,  
+But glass and poison marked their eyes,  
+Even gods must drown in lies.
+
+And Emma, cradling hope inside,  
+David by her hopeful side,  
+Geneviève soon to arrive,  
+In a world that barely survives
+
+---
+
+### Song 25 — In Our Arms, Geneviève
+
+**Verse 1**
+
+You build with words, not swords or shields,  
+Mapping dreams in quiet fields.  
+No battle cries, no iron lines —  
+Just stories spun in starry signs.
+
+But tonight, your hands are strong,  
+Cradling hope we’ve waited on.  
+A breath so small, a heart so loud,  
+Our little sun behind the clouds!
+
+**Pre-Chorus**
+
+You said love's a language, soft and true,  
+Now she speaks that song through you!
+
+**Chorus**
+
+In our arms, Geneviève!  
+Dancing light we can't believe!  
+Tiny fists that punch the sky,  
+Life begins, we learn to fly!
+
+Oh, hearts that shook, now hearts that roar —  
+A new world open, endless door!
+
+**Verse 2**
+
+Books and whispers, quiet grace,  
+But now you’re thunder in this place!  
+Her eyes are stars that pull the tide,  
+She kicks, she cries — and we're alive!
+
+I see you rock her, breath on breath,  
+Soft as dawn, defying death.  
+We dreamed of names, we built with care,  
+She’s more than all we could prepare!
+
+**Pre-Chorus**
+
+Every word you ever spoke,  
+Feels like prophecy she wrote!
+
+**Chorus**
+
+In our arms, Geneviève!  
+A fire we couldn’t conceive!  
+Tiny heart that beats so wild,  
+We are parents, we are child!
+
+Oh, hearts that feared, now hearts that soar —  
+Forever braver than before!
+
+**Bridge**
+
+For every mother wide awake,  
+For every father finding strength,  
+For trembling hands and quiet prayers,  
+She’s the answer, unaware.
+
+**Chorus**
+
+In our arms, Geneviève!  
+A joy too big to just believe!  
+Kicking feet and shining eyes,  
+All our doubts now vaporized!
+
+Oh, hearts that longed, now hearts that rise —  
+Forever changed by newborn eyes!
+
+**Outro**
+
+In our arms…  
+In our arms…  
+Geneviève!
+
+We’re alive.
+
+---
+
+### Song 26 — Mirrors and Shadows
+
+**Verse 1**
+
+I built you marble towers,  
+Wove your name in silver threads,  
+Watched you light the darkened hours,  
+With every word you never said.
+
+You held the world like water,  
+Slipping slow between your hands,  
+I thought you needed wisdom,  
+You just needed bigger plans.
+
+**Chorus**
+
+I see the crown,  
+But there’s a shadow in gold,  
+Warm in your arms,  
+But your heart’s running cold.
+
+You speak of forever,  
+I’m starting to know…  
+There’s a shadow in gold.
+
+**Verse 2 — Pregnancy Reveal**
+
+Tonight I found the courage,  
+Soft and shaking in my breath,  
+I told you there’s a life inside me,  
+Kicking quiet, dreaming rest.
+
+You took my hand and smiled,  
+But your eyes were somewhere far,  
+I felt the weight of empires,  
+In the silence where we are.
+
+**Chorus**
+
+I see the crown,  
+But there’s a shadow in gold,  
+Held in your orbit,  
+But your dreams are so cold.
+
+You whisper of kingdoms,  
+I’m starting to know…  
+There’s a shadow in gold.
+
+**Bridge — slow-burning blues build**
+
+Tell me — was it love or a cage?  
+Every secret written on a gilded page.
+
+I gave you wonder,  
+I gave you trust,  
+But all that glitters,  
+Turns to dust.
+
+**Outro — gentle tremolo fade**
+
+You wear the crown,  
+I feel the fold…  
+There’s a shadow…  
+There’s a shadow…  
+In gold.
 
 
 
