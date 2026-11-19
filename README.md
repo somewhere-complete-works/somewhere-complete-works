@@ -6,7 +6,7 @@ Created by Sébastien Loiret
 
 Initiated on Suno (AI music platform) on January 29, 2025
 
-Official Website: Somewhere — An AI-Assisted Narrative Musical Saga
+**Official Website:** [Somewhere — An AI-Assisted Narrative Musical Saga](https://somewhere-musical-saga.netlify.app/)
 
 ---
 
