@@ -2,12 +2,11 @@ Saga musicale narrative assistée par IA
 (AI-assisted narrative musical saga)
 # Somewhere — Complete Works
 
-Saga musicale narrative assistée par IA  
-(AI-assisted narrative musical saga)
-
 Created by Sébastien Loiret
 
 Initiated on Suno (AI music platform) on January 29, 2025
+
+Official Website: Somewhere — An AI-Assisted Narrative Musical Saga
 
 ---
 
